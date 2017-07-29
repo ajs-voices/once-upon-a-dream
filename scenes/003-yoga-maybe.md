@@ -1,5 +1,7 @@
 # Yoga Maybe?
 
+**Alex**
+
 Monday's were never a typical day for me.  Drew and I were going to go a few rounds but I came in early to get a few weights in.  Oddly pretty boy was lifting weights.  I was suprised to see him doing a deadlift as I walked past.  But Jer got in the way and I couldn't watch his form.  I sighed and walked down the hall into the locker room.  I chose the same locker I always did and sat down to change.  Ten minutes later pretty boy walks into the aisle of lockers.  But he didn't change just grabbed a yoga mat and water before he was out again.  Fuck!
 
 Drew came in and sat down next to me.  "I thought you were going to lift weights."
