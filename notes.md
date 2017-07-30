@@ -28,3 +28,6 @@ http://nyhrc.com/club/56th-street/ (New York Health & Raquet Club)
 https://www.google.com/maps/dir/100+W+57th+St,+New+York,+NY+10019/New+York+Health+%26+Racquet+Club,+110+W+56th+St,+New+York,+NY+10019/24+W+55th+St,+New+York,+NY+10019/@40.7632606,-73.9796043,17z/data=!3m1!4b1!4m20!4m19!1m5!1m1!1s0x89c258f9fe4181d9:0x6412bf2d2f3f64eb!2m2!1d-73.9775665!2d40.7642629!1m5!1m1!1s0x89c258f9e7450239:0x35260b076da4382a!2m2!1d-73.9785268!2d40.7637651!1m5!1m1!1s0x89c258fa2fdb6cad:0x5654b7b32f7a2cef!2m2!1d-73.9764139!2d40.7620899!3e2
 
 
+https://www.ciachef.edu/cia-new-york-culinary-science-bachelors-degree-program/
+
+
