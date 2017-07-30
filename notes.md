@@ -30,4 +30,9 @@ https://www.google.com/maps/dir/100+W+57th+St,+New+York,+NY+10019/New+York+Healt
 
 https://www.ciachef.edu/cia-new-york-culinary-science-bachelors-degree-program/
 
+100 W 57th St (Nox's family apartment)
+
+24 W 55th (Alex's apartment)
+
+
 
