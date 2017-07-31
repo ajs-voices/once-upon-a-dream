@@ -88,8 +88,9 @@ I pulled out my wallet and left a few bucks on the table.  "You need to let me c
 
 "That wasn't your best work?  Max would have licked his plate clean if he wasn't sitting in a posh restaurant.  And Drew took all the leftovers.  Man eats like a bird.  I think he is just taking it home for his wife since she can't come to the meetings anymore."
 
-"You have my number now." I said with a smile and leaned down and whispered in Alex's ear.  "I would very much like to see you again Alex Kennedy."  I brushed my lips against his cheek and took a deep breath of his skin before I stood up and walked away.
-Alex turned into my lingering and his lips brushed against mine and the only thing runing through my mind was kissing him.  But he whispered pulled back just a little and it drew my attention to his baby blues again.  I bit my bottom lip and he whispered, "Can't let her think she has a chance with you."  My breath caught but I forced myself to stand up and walk away.  Fuck I wanted him.  And that was a bad thing in that moment. I didn't want a fuck and leave.  It was the hardest fucking thing turning and walking away but I did it.  I was proud of that moment.
+"You have my number now." I said with a smile and leaned down and whispered in Alex's ear.  "I would very much like to see you again Alex Kennedy."  I brushed my lips against his cheek and took a deep breath of his skin.
+
+Alex turned into my lingering and his lips brushed against mine and the only thing runing through my mind was kissing him.  But he pulled back just a little and it drew my attention to his baby blues again.  I bit my bottom lip as he whispered, "Can't let her think she has a chance with you."  My breath caught but I forced myself to stand up and walk away.  Fuck I wanted him.  And that was a bad thing in that moment. I didn't want a fuck and leave.  It was the hardest fucking thing turning and walking away but I did it.  I was proud of that moment.
 
 Alex called out, "Hey, Pretty boy."  I turned around and grinned at him trying very hard to hid my feelings as I kept walking backwards.  "I'll see you around." he said.
 
