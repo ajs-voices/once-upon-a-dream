@@ -8,7 +8,7 @@ Our dinner turned into a proper meeting over the chocolate cake and coffee.  Sev
 
 "I think we're done here."  Drew said as he glanced at his watch.  "Mandy's gonna kill me.  I'm so late."
 
-We all stood up and headed for the door.  I noticed that the bartender was pretty boy.  He was watching me from down cast eyes through those long lashes and I couldn't help the reaction.  Drew shoulder checked me.  "Whatever."
+We all stood up and headed for the door.  I noticed that the bartender was pretty boy.  He was watching me from down cast eyes through those long lashes and I couldn't help the reaction.  Drew shoulder checked me.  "Whatever." I mumbled.
 
 I looked at him polishing that glass like he wasn't watching us leave.  He set it down and took his phone out of his pocket.  I saw him turn and start texting and I frowned as I walked out into the foyer and grabbed my coat from the rail where they sat waiting for us to collect them.
 
@@ -24,11 +24,11 @@ I shook my head.  "I can walk."
 
 Drew waved and looked at me, "You sure? It's cold."
 
-"I'm good, D.  Don't keep Mandy waiting."  I turned the opposite direction of Drew.  When I said I'd walk, I meant take the train.  I headed towards Grand Street Station to catch the M.  The platform had several people waiting and I looked at my phone again and the message that still sat there.
+"I'm good, D.  Don't keep Mandy waiting."  I turned the opposite direction of Drew.  WWhat I really meant to say was 'I'll the train'.  I headed towards Grand Street Station to catch the D.  The platform had several people waiting and I looked at my phone again and the message that still sat there.
 
-I sent a reply.  I gave him my number.  He finally responded to it.  I hadn't been waiting for it.  I was disappointed that he'd not said anything but then I saw him in the locker room.  He stood in front of me, looked me in the eye with that smile and said he'd see me around.  I asked myself what I'd have done in his place.  I wouldn't have taken his card.  Well I would have I'd have trashed it with everyone else's.  I knew he was a player.  He was a regular at Zion, I knew his game.  Shit!
+I sent a reply.  I gave him my number.  He finally responded to it.  I hadn't been waiting for it.  I was disappointed that there was no response but then I saw him in the locker room.  He stood in front of me, looked me in the eye with that smile and said 'I'll see you around'.  I asked myself what I'd have done in his place.  I wouldn't have taken his card.  Well I would have but then I would trash it with everyone else's.  I knew he was a player.  He was a regular at Zion, I knew his game.  Shit!
 
-I sent him a reply.
+I still sent him a reply.
 
 _Your other distractions couldn't have been as hot as me._
 
@@ -44,7 +44,7 @@ I looked behind me and to the right.  Siting in the rear of the car there he was
 
 _You tired?_
 
-Unknown Number: _Never for you. Butyeah  long day.  And another one tomorrow._
+Unknown Number: _Never for you. But yeah  long day.  And another one tomorrow._
 
 _Covering again for your dad?_
 
@@ -63,8 +63,6 @@ He had me there.  I hadn't said no.  I hadn't said yes either.  I hadn't actuall
 Unknown Number:  _I'm out at the next stop.  Don't want you to think I'm following you.  I'll see you around :)_
 
 The train pulled to a stop and I turned to watch as he got up.  He smiled at me his eyes still mostly hidden by the wool hat.  He bit his bottom lip and waved as he jumped out the door ahead of the people getting on.  I wondered how far he had to walk from here.  I stood up and jumped off the train myself and then sent a quick text.
-
-_There is this little place around the corner that has good pie_
 
 I looked around but I didn't see his tall frame in the people leaving.  Damn.  Missed him.
 

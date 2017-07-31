@@ -10,7 +10,7 @@ I tapped out a response.
 
 To Alex: _Do you even have room enough to eat anything else?_
 
-I saw a familiar figure walking up the stairs.  He was looking down at his phone as he passed in front of me.  "You might trip if don't look up."
+I saw a familiar figure walking up the stairs.  He was looking down at his phone as he passed in front of me.  "You might trip if you don't look up."
 
 He looked at me with a start but it went away with a smirk.  "Yeah.  I might trip over those big feet in my way."
 
@@ -46,7 +46,7 @@ I nodded.  "Technically I could get away with being a self taught chef.  I've be
 
 The waitress in the pink apron brought over my coffee and Alex's water and our pie.  "Can I get you boys anything else?"
 
-"No ma'am I think we are good."  I said and gave her a good smile.
+"No ma'am, I think we are good."  I said and gave her a good smile.
 
 She walked off to her other patrons and I watched her move.  She was trying to draw our attention.  I shook my head.  "She either thinks we are on a date and it's wrong, or she thinks she has a chance with one or both of us."
 
@@ -54,9 +54,9 @@ Alex turned to look at our waitress.  "She wasn't flirting."
 
 "No.  But she walked away like she wanted us to watch."
 
-"Do you want to find out which one?"  Alex smirked and I couldn't help but grin back at him.  I wanted to stare into his eyes.  I forced myself to look down at my plate, but he taped his fork to his plate and it drew my attention to it and I followed his forkful of apple pie to his mouth and I knew I was staring at his lips.  His tongue licking the sugar and cinamon from his lips.  Fuck!
+"Do you want to find out which one?"  Alex smirked and I couldn't help but grin back at him.  I wanted to stare into his eyes.  I forced myself to look down at my plate, but he taped his fork to his plate and it drew my attention to it and I followed his forkful of apple pie to his mouth and I knew I was staring at his lips.  His tongue licking the sugar and cinamon from them...  Fuck!
 
-I looked down at my plate and took a forkful of the filling.  It was my favorite pie, but not all pie was created equal.  Baboo didn't make anything traditional for the holidays.  I loved turkey and stuffing and pumpkin pie.  But that wasn't what we had.  Neither of my fathers were born in the states.  And neither of them really cared about the traditions.  Baboo usually opened early on Thanksgiving and he served up his version of turkey and stuffing and cranberry sauce.  He even had his version of pumpkin but it was in a pie.  He cooked it more like squash.  Don't get me wrong it's all great and I didn't really know what I was missing until I went to a friends house one Thanksgiving break cause Baboo and Dad went to Spain cause Dad's grandmother passed and there was something about Dad in the will.
+I looked down at my plate and took a forkful of the filling.  It was my favorite pie, but not all pie was created equal.  Baboo didn't make anything traditional for the holidays.  I loved turkey and stuffing and pumpkin pie.  But that wasn't what we had.  Neither of my fathers were born in the states.  And neither of them really cared about the traditions.  Baboo usually opened early on Thanksgiving and he served up his version of turkey and stuffing and cranberry sauce.  He even had his version of pumpkin but it was in a pie.  He cooked it more like squash.  Don't get me wrong it's all great and I didn't really know what I was missing until I went to a friends house one Thanksgiving break cause Baboo and Dad went to Spain. Dad's grandmother passed and there was something about Dad in the will.
 
 "Did you want to find out which one?"  Alex asked again.  Shit I'd not answered his question.
 
@@ -64,7 +64,7 @@ I looked down at my plate and took a forkful of the filling.  It was my favorite
 
 He chuckled.  "I noticed.  Then you got lost in thought."
 
-"I was just thinking about holiday traditions."  I looked up at Alex and into his baby blues.  Fuck I could look at them all day.  I didn't look away this time as I brought the fork to my mouth.  I almost spit it out but swuallowed instead then pushed the plate away.  Yeah not exactly what I wanted.
+"I was just thinking about holiday traditions."  I looked up at Alex and into his baby blues.  Fuck I could look at them all day.  I didn't look away this time as I brought the fork to my mouth.  I almost spit it out but swallowed instead then pushed the plate away.  Yeah not exactly what I wanted.
 
 "Not good?" Alex asked.
 
@@ -89,7 +89,8 @@ I pulled out my wallet and left a few bucks on the table.  "You need to let me c
 "That wasn't your best work?  Max would have licked his plate clean if he wasn't sitting in a posh restaurant.  And Drew took all the leftovers.  Man eats like a bird.  I think he is just taking it home for his wife since she can't come to the meetings anymore."
 
 "You have my number now." I said with a smile and leaned down and whispered in Alex's ear.  "I would very much like to see you again Alex Kennedy."  I brushed my lips against his cheek and took a deep breath of his skin before I stood up and walked away.
+Alex turned into my lingering and his lips brushed against mine and the only thing runing through my mind was kissing him.  But he whispered pulled back just a little and it drew my attention to his baby blues again.  I bit my bottom lip and he whispered, "Can't let her think she has a chance with you."  My breath caught but I forced myself to stand up and walk away.  Fuck I wanted him.  And that was a bad thing in that moment. I didn't want a fuck and leave.  It was the hardest fucking thing turning and walking away but I did it.  I was proud of that moment.
 
-Alex called out, "Hey Pretty boy."  I turned and grinned at him but kept walking backwards.  "I'll see you around."
+Alex called out, "Hey, Pretty boy."  I turned around and grinned at him trying very hard to hid my feelings as I kept walking backwards.  "I'll see you around." he said.
 
 I tipped an imaginary hat at him and gave him my best flourshing bow and blew him a kiss.  "Bet your blue eyes you will."  We saw each other everywhere.  There was no denying that fact.  And I knew I wasn't going to be getting any studying done once I got home.  Even a short run in this cold weather wasn't going to fix the hard on in my pants.
