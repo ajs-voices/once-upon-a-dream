@@ -78,7 +78,7 @@ I could do with seeing his ass again.  I sighed, "If it would make you happy."
 
 "He was cute.  I wonder if he works our table."  But I doubted he was going to work our table while I was here.  I think being here on a date was a bit much after Monday.  I should have told my father no, taken Jennifer someplace else.
 
-Nadia brought our wine and Jennifer's salad, and we both ordered the chef's special.  Marco dazzled of course.  And I'd been right we'd not seen Nox since that impromptu question.  I didn't have time to think about him with a dazzling woman in front of me.  I learned she went to Yale and was top of her class.  There was no wonder that my father had recruited her to the firm.  I wondered if the three men were bringing in young fresh new blood to bring on as a partner.
+Nadia brought our wine and Jennifer's salad, and we both ordered the chef's special.  Marco dazzled of course.  And I'd been right we hadn't seen Nox since that impromptu question.  I didn't have time to think about him with a dazzling woman in front of me.  I learned she went to Yale and was top of her class.  There was no wonder that my father had recruited her to the firm.  I wondered if the three men were bringing in young fresh new blood to bring on as a partner.
 
 I told her dad had been disappointed when I didn't want to join the firm.  I had no interest in law.  She asked me what I did have interest in and I lied.  Told her my business kept me busy and was my first love.  It wasn't really a lie, but I didn't mention my music, the reason I have Zion.
 
