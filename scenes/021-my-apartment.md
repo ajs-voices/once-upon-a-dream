@@ -30,7 +30,7 @@ Nox nodded but he never looked up from the floor as we rode higher in the elevat
 
 "When we get off I'll tell you."  He said.  So we stood there, Nox's body trembling.  His head pressed against my chest and all I wanted to do was scoop him up and carry him to bed.  I was pretty sure I was going to break my promise.  I had a pretty girl in my arms all evening who wanted to sleep with me.  Now I had a guy pressed aganst me.  And not any guy, the guy I was seeing everywhere.  I was dreaming about that yoga class.  His cooking.  And now he was in the elevator on the way to my bed.
 
-The elevator dinged when we reached my floor and Nox's head popped up and he took my hand in his and as soon as the door was open he was out.  He was taking deep breathes and waiting or me to lead the way.  But I stood there watching him.  "You alright?"
+The elevator dinged when we reached my floor and Nox's head popped up and he took my hand in his and as soon as the door was open he was out.  He was taking deep breathes and waiting for me to lead the way.  But I stood there watching him.  "You alright?"
 
 Nox nodded.  He put on a fake smile.  "Yeah.  I am now.  I don't do so well in elevators - closed spaces, heights, crowds."
 
@@ -62,7 +62,7 @@ I shoved my hands into my waist band and pushed my boxers down and I stood naked
 
 My fingers found purchase in his hair but I only held on while he took me into his hot wet mouth.  "Fuck!" I groaned out as he took me deeper each time.  It wasn't long before I was watching him take me in his mouth from tip to base.  I felt his throat tighten around my cock and I almost lost it.  Before he could do it again I pulled on his hair and he stopped.  His eyes were heavy and his lips swollen but still around my cock.  "I'm going come if you do that again."
 
-He grinned but I tugged on his hair and he came away from my cock with a soft sluping sound.  His lips were wet and I pulled him up.  His eyes were clothes as I guided him to my mouth with a handful of his hair.  He moaned the moment our mouths touched.  My fingers worked his pants off and we both stepped out of what remained of our clothes.  His naked body was pressed against mine.  His cock was hard and hot.
+He grinned but I tugged on his hair and he came away from my cock with a soft sluping sound.  His lips were wet and I pulled him up.  His eyes were clothd as I guided him to my mouth with a handful of his hair.  He moaned the moment our mouths touched.  My fingers worked his pants off and we both stepped out of what remained of our clothes.  His naked body was pressed against mine.  His cock was hard and hot.
 
 I broke the kiss and pushed pretty boy on to the bed.  He fell with an oomp and I crawled on top of him as he moved backwards so we weren't hanging off the bed.  He looked so fucking hot and I kissed him hard and pulled his bottom lip into my mouth and sucked and bit.  He moaned underneath me and I felt his cock jump.  I kissed along his jawline and down his neck to my favorite spot.  He tasted clean.  No cologne or heavy scents on his skin.  It wasn't what I expected.  I sucked and bit just about the tattoo on his neck.  A memory drifting to my mind of the dream I had.  I stopped what I was doing and looked at the tattoo and saw what my memory remembered, the strange curves, it wasn't an infinity sign or the letter z but taken apart it could.
 
