@@ -18,7 +18,7 @@ He looked up at me from the other side of the couch back.  "Oh hey.  Jen's getti
 
 "You look good."  He stood up in his tidy whities and openly checked me out.  "You aren't what I expected for an owner of Zion."
 
-"What's that supposed to mean?"
+"Sorry, I'll do better next time." I smirked.  I really didn't care what he thought of me.
 
 "I mean.  The clean cut look doesn't sell, does it?"
 
@@ -38,7 +38,7 @@ Jennifer rolled her eyes.  "My ex boyfriend.  It's my place.  But he's got no jo
 
 "Oh, that's sweet of you, but not necessary."
 
-"The offer stands.  Smuck shouldn't be taking care of a sweet thing like you."  I smiled at her.
+"The offer stands.  Smuck shouldn't be taking advantage of a sweet thing like you."  I smiled at her.
 
 She pressed a kiss to my lips and I tasted the remenants of the alcohol she drank eariler.  I couldn't place it so it was probably wine.  Not my favorite.
 
