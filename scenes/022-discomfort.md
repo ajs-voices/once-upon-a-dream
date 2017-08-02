@@ -14,7 +14,7 @@ Alex sighed and pushed off the door frame.  He crawled on the bed next to me and
 
 He ran his fingers through my hair and and pulled me down to kiss him.  I snaked a hand between our bodies and grabed our cocks and stroked them together.  The feel of his hard shaft against mine made me moan into his mouth.
 
-All prior drama was forgotten as we got back into the grove.  Our bodies sliding against each other.  I searched the bed for the foil packet and lube, but Alex's fingers found them first and he pushed the packet into my hands as we kissed long and deep.  Our bodies were hard against each other.  His fingers gripped my hips and he pulled me against him.  I pulled away and slid down his legs so I could view his cock and slide the condom on.  He was beautiful and it was sexual fancy.  His body was perfect.  He was perfect.
+All prior drama was forgotten as we got back into the grove.  Our bodies sliding against each other.  I searched the bed for the foil packet and lube, but Alex's fingers found them first and he pushed the packet into my hands as we kissed long and deep.  Our bodies were hard against each other.  His fingers gripped my hips and he pulled me against him.  I pulled away and slid down his legs so I could view his cock and slide the condom on.  He was beautiful and it wasn't sexual fancy.  His body was perfect.  He was perfect.
 
 My fingers slid over his cock rolling condomn down, my eyes on his as I stroked him through the rubber applying lube.  He watched me and I stared back at him.  "Yes?"  I asked him as I pressed him against my hole.  My body was tight and waiting.  I could feel him inside me already.  I might come too soon I wanted him so bad.
 
