@@ -20,7 +20,7 @@ My fingers slid over his cock rolling condomn down, my eyes on his as I stroked 
 
 He didn't answer me just pressed up and pulled down on my hips and I gasped at the intrusion.  My head fell back and Alex sat up.  I wrapped my legs around his waist and his mouth found my neck.  There was barely any movement but it was all that I needed.  He'd hit that perfect spot and I was seeing stars as he slid inside me and sucked on my neck.
 
-My fingers dug into his back as the warmth built in my stomach and thighs.  I was going to come and I fought the feeling back.  I needed him to come.  Alex whispered against my skin, "Come for me pretty boy."  He pressed harder inside of me and my control fled and I was gushing against our chests as he released inside of me.  He thrust a few more times riding the edge of his orgasm and pushing me father over the edge.
+My fingers dug into his back as the warmth built in my stomach and thighs.  I was going to come and I fought the feeling back.  I needed him to come.  Alex whispered against my skin, "Come for me pretty boy."  He pressed harder inside of me and my control fled and I was gushing against our stomaches as he released inside of me.  He thrust a few more times riding the edge of his orgasm and pushing me father over the edge.
 
 We collapsed into a heap on our sides and I held on to him I didn't want the moment to end.  Removing the used condom and tossing it in the garbage by the bed was the last thing I remembed before we both fell asleep entwined under his sheets.
 
