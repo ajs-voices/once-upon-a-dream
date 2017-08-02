@@ -4,13 +4,13 @@
 
 The gala ended around 2am.  That's when the space started trying to get people to file out without making it seem like they were getting kicked out.  The band had long since gone and there was a dj playing soft mixes of modern music.  Nothing overly enrgetic, but enough of a dance beat to keep everyone happy.
 
-The booze were dwindling, we'd run out of champagne completely, and most of the the rum and vodka.  We still had plenty of wine, bt we were digging the bottom of the barrel stuff.  All the good stuff was gone, but no one really cared at this point.  I had watched Alex leave with his date at midnight.  My Dad had left at 1 with Angelina.
+The booze were dwindling, we'd run out of champagne completely, and most of the the rum and vodka.  We still had plenty of wine, but we were digging the bottom of the barrel stuff.  All the good stuff was gone, but no one really cared at this point.  I had watched Alex leave with his date at midnight.  My Dad had left at 1 with Angelina.
 
 Mr. Hudson left shortly there after and the last of the partners was Mr. Kennedy and his wife.  They were helping security make everyone leave discretely while we cleaned up our things.  The space would be cleaned by the staff.  But we had to pack up everything.
 
 It was an annoying job but it was definately good amount of quiet time.  I didn't have a problem cleaning up.
 
-But I was drained by the time I we got out.  Baboo left shortly after Dad had I needed to kill a little more time so I was gonna walk home.  It was cold outside and I pulled my coat around my neck and my hat down over my ears.
+But I was drained by the time we got out.  Baboo left shortly after Dad had I needed to kill a little more time so I was gonna walk home.  It was cold outside and I pulled my coat around my neck and my hat down over my ears.
 
 Standing outside in the door way outside the hotel I saw blue eyes.  He smiled at me.  "That took you long enough, what did you do mop the floor?"
 
@@ -38,9 +38,9 @@ I smiled and ducked my head.  "Well that's not the question.  Why outside?"
 
 "Honorable."
 
-"Why aren't you going home you look tired."  Alex asked and sipped at his coffee.
+"Why aren't you going home? You look tired."  Alex asked and sipped at his coffee.
 
-"My parents need a little free time."
+"My parents need a little alone time."
 
 "Living at home sucks."
 
@@ -66,7 +66,7 @@ Alex sighed, "Or you can crash at my place."
 
 I licked my lips and set my coffee down.  "Dinner then.  11pm?"
 
-"You don't want to crash at my place."
+"You don't want to crash at my place?"
 
 I stood up and walked around the small table and pressed my chest into his back and put my hands on the table trapping him in his seat.  I licked his earlobe and then whispered.  "I want to, that's why I shouldn't."  I kissed my way down his neck and he moved his head to the side so I could get better access.  He moaned and I almost agreed right then.  "I want to go home with you. Explore every facet of your body, but fuck Alex I want to do more than that."
 
