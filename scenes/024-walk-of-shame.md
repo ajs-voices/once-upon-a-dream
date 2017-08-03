@@ -1,4 +1,0 @@
-# Walk of Shame
-
-**Nox**
-

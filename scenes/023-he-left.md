@@ -112,9 +112,9 @@ Nox shook his head.  "I'd say no, but I cook all the time to impress people.  I 
 
 "What do I want to know then?"  I quipped.  I finished the last bite on my plate and looked at the remaining slice of fratta and wondered what he planned on doing with it.
 
-"I have never cooked someone breakfast - other than family and friends.  I've never cooked anyone any mean with the express purpose of trying to get in their pants."  Nox grinned at me then turned back around to wash the dishes he had.  I stood up and took my empty plate and things to the sink and slid them into the hot soapy water and pressed my body against his backside wrapping my arms around him just above the sink.
+"I have never cooked someone breakfast - other than family and friends.  I've never cooked anyone any meal with the express purpose of trying to get in their pants."  Nox grinned at me then turned back around to wash the dishes he had.  I stood up and took my empty plate and things to the sink and slid them into the hot soapy water and pressed my body against his backside wrapping my arms around him just above the sink.
 
-I asked, "But you already got in my pants."
+I said, "But you already got in my pants."
 
 He laughed.  I felt the muscles in his stomach contract and expand.  I pressed my lips against his neck and he let a small moan escape.  I knew he was bitting his bottom lip.  "I would have cooked for you either way."  He confessed.
 
