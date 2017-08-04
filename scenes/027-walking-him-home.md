@@ -1,3 +1,0 @@
-# Walking him Home
-
-**Alex**
