@@ -1,4 +1,4 @@
-# Walking Him Home
+# The Almost Confession
 
 **Alex**
 
@@ -42,4 +42,44 @@ I chuckled.  "We'll see.  It gives you an excuse to see me again."
 
 His face lit up in a smile and he bit his bottom lip and I watched as the relazation it him and he let it go with a sheepish grin.  "Habit."  He said to explain his lapse.  He sat down on the bed and tugged my shoes on.  It was probably good thing we were close to the same size.  Nox's voice was quiet. "You want to me to see you again?"
 
-I looked at him - really looked at him.  I saw the bold and brazen man who made friends at Zion and could probably get away with murder there and right now he was not very confident.  The shy smile, he wouldn't meet my eyes with that question, so quiet when I knew he wasn't any of those things.  "Why wouldn't I?"
+I looked at him - really looked at him.  I saw the bold and brazen man who made friends at Zion and could probably get away with murder there and right now he was not very confident.  The shy smile, he wouldn't meet my eyes with that question, so quiet when I knew he wasn't any of those things.  "Why wouldn't I?" I ask.
+
+He shrugged and the man I'd seen before was back he was standing a little straighter as he walked to his tux and started folding it.  I scoffed.  "No.  Stop."
+
+He rolled his eyes.  "The dry cleaning will get the wrinkles out."  He  protested.
+
+"No."  I said as I walked into my closet and grabbed a suit cover "Hanging in a garbage bag is better than what you are doing to that."
+
+"You are as bad as my father."
+
+"Rented, or owned you treat a fine Armani tux with care."
+
+He smirked. "What?"
+
+He shook his head and pulled his lips in like he was keeping some big secret.  "What? " I asked again.  What had I said?
+
+I shouldered him as I grabbed the tux from his hands.  "Tell me."
+
+He giggled - fucking giggled and I couldn't help but smile at the cute behavior.
+
+"Did you read the label?"
+
+"What?"  I asked.  I wasn't sure where he was going with this.  Or why he thought it was funny.
+
+"So you knew what kind of tux I was wearing?"
+
+I rolled my eyes.  "So I'm gay because I can tell what type of suit you wore?"
+
+"You said it, not me."  He was in front of me in a blink and his hands were on my hips, biting his bottom lip.  "But no, but you are probably the gayest man I've ever been with."
+
+I pushed him away from.  "Fuck you."  I didn't like that at all.
+
+He was still grinning like I missed a joke.  He put his hand behind my neck like he had the last time.  His grip was firm.  I could have walked away if I wanted to but I was pretty sure I didn't want to.  "What I mean to say is that the men who I typically let fuck me say they aren't into men.  That it's a one time thing.  That I'm too pretty not to fuck."  He spat out pretty like it was a swear word.  "They always want more.  You are at least man enough to be open about what you like."
+
+I pressed a kiss to his lips and he ducked his head breaking the kiss.  I tucked two fingers under his chin and lifted his eyes to mine.  "You are a pretty boy."  **My** pretty boy, I wanted to say.  And from the look in his eyes when I said those five little words he wanted me to say them to him.  "But if I ever find out someone is fucking you just because you are pretty I'm going to kick their ass."
+
+He laughed.  "So if they are fucking me for any other reason it's okay?"
+
+I wanted to say no it wasn't okay, that he was mine.  But...
+
+I pressed a tender kiss to his lips and he let out a small moan at the touch.  I didn't want to take him home, but he had work.  Tomorrow was Christmas Eve, and I was going to be busy doing the family thing.  I wouldn't be seeing my pretty boy until New Years Eve more than likely.  I shoved the wrapped tux into his arms and "Come on, let's get you home before you are late for work."
