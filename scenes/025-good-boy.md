@@ -40,7 +40,7 @@ Nox moved his arms and shook them as he placed his hands in mine and I pulled hi
 
 There was a slight hesitation in his step but Nox opened the bedroom door and stepped into the private hall towards the bathroom.  I grabbed a clean t-shirt and a pair of sweats for Nox.  They should fit him, he was smaller than I was.  He'd have to go comando but the thought of him leaving my apartment with only my clothes touching his skin made me smile.
 
-After gathering my things from the floor I walked into the bathroom and found him testing the water.  I pushed my boxers and sweats to the floor and ran my fingers down his spine and he stood up straight and looked back at me.  "Clean clothes."  I pointed to the pile on counter.  "For you."
+I grabbed the lube and a few condoms just in case. After gathering my things from the floor I walked into the bathroom and found him testing the water.  I pushed my boxers and sweats to the floor and ran my fingers down his spine and he stood up straight and looked back at me.  "Clean clothes."  I pointed to the pile on counter.  "For you."
 
 He grinned at me.  "Thanks."
 
@@ -74,6 +74,6 @@ I shook my head with a smirk.  "No.  I hated it."
 
 Nox twined his fingers in my hair and grabbed the back of my head.  He closed the distance and his lips brushed mine.  His tongue flicked my bottom lip and I parted mine and the kiss went deeper.  He moaned and I drank it down.  He pulled me against him and leaned against the cold wall.  "Alex, I want to fuck you."  He pressed more kisses to my neck but didn't let go of my neck.  "Please."
 
-"Pretty boy you don't need to ask."
+"You don't need to ask."
 
-He bit my neck and I groaned, "Pretty boy fuck me."
+He bit my neck and I groaned, "Nox fuck me."
