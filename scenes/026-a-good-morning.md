@@ -24,15 +24,15 @@ It was a good thing we were in the shower.
 
 The water was growing chilly by the time we had come down enough to function.  To finish washing and cleaning up.  It wasn't as sexy or hot as before, but I knew I couldn't get the smile off my face when I looked at him.
 
-It was a good morning and it sucked it had to come to an end.  We had dressed in the bathroom together.  It was erotic in it's own way watching Alex slide his clothes over his body.  If I didn't have to be anywhere it would definitely be one of those days we didn't go anywhere except back to bed.
+It was a good morning and it sucked it had to come to an end.  We had dressed in the bathroom together.  It was erotic in its own way watching Alex slide his clothes over his body.  If I didn't have to be anywhere it would definitely be one of those days we didn't go anywhere except back to bed.
 
 Alex opened the medicine cabinent above his sink, "Use whatever you need."  I looked at the various different shelves and saw the makeup he was hiding inside.  I chuckled.  "What?  I own a club that sells sexy men, you think I don't know how to add to this."  He waved his hands over his body.
 
-"No.  I've seen you with thick eyeliner before.  More laughing at the fact you offering because you think I need it."
+"As if there is any need, but no.  I've seen you with thick eyeliner before.  More laughing at the fact you offering because you think I need it."
 
-"Don't you?"  He pressed my back against the sink and trapped me there.  "You removed, the dye, the nails only have a clear coat, but the eyeliner, maybe have been subtle but it was there."
+"Don't you?"  He pressed my back against the sink and trapped me there.  "You removed the dye in your hair, the nails only have a clear coat, but the eyeliner, may have been subtle but it was there."  Alex ran his thumbs under my eyes.
 
-I bit my bottom lip.  He noticed all the little details.  He leaned forward and took my lip in his mouth and bit softly, "Don't do that."  He whispered when he let go.
+I bit my bottom lip.  He noticed all the little details.  He leaned forward and took my lip in his mouth and bit eliciting a moan from me, "Don't do that."  He whispered when he let go.
 
 I couldn't help myself, I bit my lip again it wasn't on purpose.  It just happened and Alex groaned and pressed a kiss to my lips.  "Hurry up.  You have to go to work.  And I don't think Chef Marco will tolerate sweats and a t-shirt.  I'll walk you home."
 
