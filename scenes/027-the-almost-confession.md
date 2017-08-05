@@ -74,7 +74,7 @@ I rolled my eyes.  "So I'm gay because I can tell what type of suit you wore?"
 
 I pushed him away from.  "Fuck you."  I didn't like that at all.
 
-He was still grinning like I missed a joke.  He put his hand behind my neck like he had the last time.  His grip was firm.  I could have walked away if I wanted to but I was pretty sure I didn't want to.  "What I mean to say is that the men who I typically let fuck me say they aren't into men.  That it's a one time thing.  That I'm too pretty not to fuck."  He spat out pretty like it was a swear word.  "They always want more.  You are at least man enough to be open about what you like."
+He was still grinning like I missed a joke.  He put his hand behind my neck like he had in the shower.  His grip was firm.  I could have walked away if I wanted to but I was pretty sure I didn't want to.  "What I mean to say is that the men who I typically let fuck me say they aren't into men.  That it's a one time thing.  That I'm too pretty not to fuck."  He spat out pretty like it was a swear word.  "They always want more.  You are at least man enough to be open about what you like."
 
 I pressed a kiss to his lips and he ducked his head breaking the kiss.  I tucked two fingers under his chin and lifted his eyes to mine.  "You are a pretty boy."  **My** pretty boy, I wanted to say.  And from the look in his eyes when I said those five little words he wanted me to say them to him.  "But if I ever find out someone is fucking you just because you are pretty I'm going to kick their ass."
 
@@ -82,4 +82,4 @@ He laughed.  "So if they are fucking me for any other reason it's okay?"
 
 I wanted to say no it wasn't okay, that he was mine.  But...
 
-I pressed a tender kiss to his lips and he let out a small moan at the touch.  I didn't want to take him home, but he had work.  Tomorrow was Christmas Eve, and I was going to be busy doing the family thing.  I wouldn't be seeing my pretty boy until New Years Eve more than likely.  I shoved the wrapped tux into his arms and "Come on, let's get you home before you are late for work."
+I pressed a tender kiss to his lips and he let out a small moan at the touch.  I didn't want to take him home, but he had work.  Tomorrow was Christmas Eve, and I was going to be busy doing the family thing.  I wouldn't be seeing my pretty boy until New Years Eve more than likely.  I shoved the wrapped tux into his arms and sai "Come on, let's get you home before you are late for work."
