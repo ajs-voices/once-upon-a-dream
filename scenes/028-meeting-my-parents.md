@@ -124,6 +124,6 @@ He let me go and smirked.  "I'll see myself out.   Call me."
 
 I nodded.  "When I get off work it'll be late."
 
-"That's alright."  He pressed a kiss to my lips.  "Be good, pretty boy."  I watched him leave my bedroom.  I stepped out into the hall and watched Alex walk to the end of the hall to the front door.  He turned back as he grabbed his shoes and his coat.  "I'll see you round Nox."  He smirked.
+"That's alright."  He pressed a kiss to my lips.  "Be good, pretty boy."  I watched him leave my bedroom.  I stepped out into the hall and watched Alex walk to the end to the front door.  He turned back as he grabbed his shoes and his coat.  "I'll see you round Nox."  He smirked.
 
 
