@@ -98,9 +98,9 @@ She nodded.  "I do.  Tall, built but kinda skinny still, dyes the tips of his ha
 
 Mandy laughed.  "It's been a while, honey but yeah, it's hard not to check him out.  He all but screams look at me."
 
-I sighed.  "So you all know he's a player.  He's never with the same girl in her twice.  You've never seen him with another guy."
+I sighed.  "So you all know he's a player.  He's never with the same girl in here twice.  You've never seen him with another guy."
 
-"I have seen him with another guy.  They haven't been in her together as a couple in a good while.  But I've seen him.  Same guy - the only guy."  Max said.
+"I have seen him with another guy.  They haven't been in here together as a couple in a good while.  But I've seen him.  Same guy - the only guy."  Max said.
 
 "Slightly shorter than him, darker complextion like he has a tan all the time, dark hair and eyes?" I asked.
 
