@@ -20,7 +20,7 @@ I sighed and hit call button and soon his phone was ringing on the otherside.  I
 
 His idea of just must be off, or he was busy.  What was he doing?  It had been a good twenty minutes since my phone rang.  "Yeah, I didn't hear my phone.  Sorry."
 
-"Whatever.  I'm just closing up.  I have an hour to kill so I'm taking my time."
+"WIt's okay, I'm just closing up.  I have an hour to kill so I'm taking my time."
 
 "Why are you killing time?"  I asked curious as to what reason he'd need an hour to close.  Or why he'd choose to kill time cleaning.
 
@@ -52,6 +52,4 @@ I sighed.  "I have to go.  I'll call you later."
 
 He shook his head.  "Nothing.  You should invite him here."
 
-"Nah.  It's already late.  He just got off work." I said, but it was more an excuse.  I'd already gone way past my quota of the dating concept and needed to forget a little more of that for now.  "Besides, he'd show you up on the dancefloor Max."
-
-I joined Max and we headed back to the party.
+"Nah.  It's already late.  He just got off work." I said, but it was more an excuse.  I'd already gone way past my quota of the dating concept and needed to forget a little more of that for now.  "Besides, he'd show you up on the dancefloor Max."  I wrapped my arm around my friend's shoulders and we headed back to the party.
