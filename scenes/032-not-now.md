@@ -38,6 +38,6 @@ Ant sighed and stepped away from me.  "Fuck, Nox.  You serious?  You've never sa
 
 Ant shook his body and nodded.  "Yeah, alright.  Icecream or pie?"
 
-"I think chocolate will have to be tonights remedy."
+"I think chocolate will have to be tonight's remedy."
 
 Ant laughed.  "Icecream it is."
