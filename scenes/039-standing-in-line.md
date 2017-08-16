@@ -74,7 +74,7 @@ Nox stepped around me and I stood there unsure of what to say.  But if I let him
 
 He looked at me with that chocolate stare and then yanked his arm free.  His voice was quiet as he spat out, "I'm sure you don't want to be seen with a whore."
 
-Fuck!  My mouth just keeps getting me in deeper.  He stalked away from me and I didn't catch him until he was in the coat room.  I grabbed him the the arm and dragged him down the hallway leading to the offices upstairs.  The noise from the club was gone and all I could hear was our heavy breathing and my heart in my ears.
+Fuck!  My mouth just keeps getting me in deeper.  He stalked away from me and I didn't catch him until he was in the coat room.  I grabbed him by the the arm and dragged him down the hallway leading to the offices upstairs.  The noise from the club was gone and all I could hear was our heavy breathing and my heart in my ears.
 
 I let his arm go in my office.  He stared at me with more definace than I'd seen on his face when he and his father had gotten into it.  "Look.  I say shit I don't mean when I'm afraid.  Self sabotage.  Whatever.  It's who I am."
 
@@ -82,6 +82,6 @@ His features soften.  "What are you afraid of?"
 
 I scrubbed my fingers through my hair and started pacing.  Two steps before I reached the wall and three back towards the door. Nox watched me walk back and forth twice before he moved for the door to leave.  I hurried to stop him closing the door and locking it before he reached the exit.  "Don't go.  Let me say it."
 
-He stood at the door waiting expectantly.  I could feel the tension in the air.  "I'm falling fucking in love with you and it scares the shit out of me."  I blurted out.  I raised my index finger in a threatening way and stalked up to him.  "If you tell anyone one I just said I'll..."  Nox's eyebrow went up with the threat but there was a faint smiling lining his lips.  His soft, warm, kissable lips.
+He stood at the door waiting expectantly.  I could feel the tension in the air.  "I'm falling fucking in love with you and it scares the shit out of me."  I blurted out.  I raised my index finger in a threatening way and stalked up to him.  "If you tell anyone one I just said that I'll..."  Nox's eyebrow went up with the threat but there was a faint smile lining his lips - his soft, warm, kissable lips.
 
 Without warning Nox's hand was on my shirt pulling me towards him.  He whispered, "Our little secret, " before his lips pressed hungrily against mine.
