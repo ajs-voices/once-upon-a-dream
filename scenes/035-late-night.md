@@ -54,7 +54,7 @@ I rolled my eyes.  "The bartender was a student of Angelina's and Dorian's son."
 
 I nodded.  "Yes, sir.  His name is Nox.  And he's studying to be a chef like his dad.  I don't know why he thinks he has to study to be a chef, he's a good chef already."
 
-"You've dined with me before?"
+"You've dined with him before?"
 
 "Yeah.  He's been the head chef at Fiore when Max, Drew and I have our weekly meeting.  And breakfast...  You really aren't mad about any of this?"
 
