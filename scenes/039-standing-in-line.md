@@ -82,6 +82,6 @@ His features soften.  "What are you afraid of?"
 
 I scrubbed my fingers through my hair and started pacing.  Two steps before I reached the wall and three back towards the door. Nox watched me walk back and forth twice before he moved for the door to leave.  I hurried to stop him closing the door and locking it before he reached the exit.  "Don't go.  Let me say it."
 
-He stood at the door waiting expectantly.  I could feel the tension in the air.  "I'm falling fucking in love with you and it scares the shit out of me."  I blurted out.  I raised my index finger in a threatening way and stalked up to him.  "If you tell anyone one I just said that I'll..."  Nox's eyebrow went up with the threat but there was a faint smile lining his lips - his soft, warm, kissable lips.
+He stood at the door waiting expectantly.  I could feel the tension in the air.  "I'm falling fucking in love with you and it scares the shit out of me." I blurted out. Fuck! Why did I say that? I shoved my hands into my hair and pulled, closing my eyes for a moment. I opened my eyes to find Nox watching me with a faint smile lining his lips - his soft, warm, kissable lips. "Don't suppose we can we forget I just said that?" I asked wryly.
 
 Without warning Nox's hand was on my shirt pulling me towards him.  He whispered, "Our little secret, " before his lips pressed hungrily against mine.
