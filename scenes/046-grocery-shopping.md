@@ -18,7 +18,7 @@ I grinned sheepishly.  "I'm sorry.  I couldn't help it I really didn't mean to m
 
 Alex smirked at me, "Uh huh."
 
-He started walking towards the freezer section and I grabbed his free wrist and pulled me to me with one hand.  The other I wrapped under his other arm and around his waist.  I bit my bottom lip as I pulled him close against me and leaned in pushing my cold hand up under his coat on purpose and laid it flat against the small of his back.  "If I had wanted to do it on purpose I would have."  I groaned into his ear.  I could easily step us into an easy waltz this way his hand in mine, the other wrapped around his waist.  I hummmed against his neck and took a deep breath then stepped away.
+He started walking towards the freezer section and I grabbed his free wrist and pulled him to me with one hand.  The other I wrapped under his other arm and around his waist.  I bit my bottom lip as I pulled him close against me and leaned in pushing my cold hand up under his coat on purpose and laid it flat against the small of his back.  "If I had wanted to do it on purpose I would have."  I groaned into his ear.  I could easily step us into an easy waltz this way his hand in mine, the other wrapped around his waist.  I hummmed against his neck and took a deep breath then stepped away.
 
 I looked up and met Alex's gaze he was smirking.  "You done?"
 
@@ -34,11 +34,11 @@ The low guttural sound that came out of my throat wasn't a moan.  And it didn't 
 
 I croaked out, "You have no fucking idea."  I let out a low sigh, "If you told me to come right now I probably would."  I added as I set the icecream into Alex's basket.
 
-He was watching me with those baby blues and I shivered in anticipation.  Fuck he had me wround so tight.  We walked down the baking aisle and grabbed flour and baking power, sugar and all the other dry ingredients we needed for pancakes.  I didn't bake but crepes and pancakes were something I could do despite their semi-baking concepts.  I dropped a vanilla bean bottle in the basked and Alex took me by the arm and stood in front of me while I stood against the end cap of the freezers.  "So do it."
+He was watching me with those baby blues and I shivered in anticipation.  Fuck, he had me wound so tight.  We walked down the baking aisle and grabbed flour and baking power, sugar and all the other dry ingredients we needed for pancakes.  I didn't bake but crepes and pancakes were something I could do despite their semi-baking concepts.  I dropped a vanilla bean bottle in the basket and Alex took me by the arm and stood in front of me while I stood against the end cap of the freezers.  "So do it."
 
 I blinked at him.  "Do what?" I asked confused.
 
-"Come for me, right now."  It wasn't a command.  It sounded nothing like anything anyone had ever said to me.  Was a challenge and a joke and curiousity all rolled into those five little words.  And my body had already responded to his voice and the words and made me harder.  But I wasn't anywhere near close.
+"Come for me, right now."  It wasn't a command.  It sounded nothing like anything anyone had ever said to me.  Was a challenge and a joke and curiousity all rolled into those five little words.  And my body had already responded to his voice and the words made me harder.  But I wasn't anywhere near close.
 
 "Touch me."  I begged as I pressed my body against the freezer end cap and my body went slack as I closed my eyes to obey.
 
