@@ -2,11 +2,11 @@
 
 **Alex**
 
-When Nox said he could come right then and there I thought it was just a boast.  One of those things you say when you are exaggerating your poweress.  I thought I'd call his bluff.  When he didn't hesitate I watched with amusement, but he went slack, his body relaxed against the end cap.  His face and everything about his said he'd given up something.  His voice came out heavy with desire and he begged for me to touch him.  I obliged him.  Fuck that look in his eyes I'd do anything he asked right then.  My body reacted to his.  I hadn't expected this.  I kissed him and he parted his lips.  I slipped my tongue in his mouth and in moments he was climaxing and I drank down his moans as his body went weak and I pressed my against him.
+When Nox said he could come right then and there I thought it was just a boast.  One of those things you say when you are exaggerating your poweress.  I thought I'd call his bluff.  When he didn't hesitate I watched with amusement, but he went slack, his body relaxed against the end cap.  His face and everything about him said he'd given up something.  His voice came out heavy with desire and he begged for me to touch him.  I obliged him.  Fuck that look in his eyes I'd do anything he asked right then.  My body reacted to his.  I hadn't expected this.  I kissed him and he parted his lips.  I slipped my tongue in his mouth and in moments he was climaxing and I drank down his moans as his body went weak and I pressed mine against him.
 
 I hadn't expected any of it.  Hadn't dreamed he'd do that.  But all I knew right now I wanted to get him naked and fuck him.  Breakfast be damned.   My stomach growled as we parted making a liar of my thoughts.  But Nox just smirked with his eyes still closed.  I took his hand and tugged.  He easily followed and  I picked up the basket.  "What else do you need?"
 
-"Strawberries and raspberries, unless you don't like either.  Bacon and eggs and milk."  His eyes were still closed he was trusting me to not walk him into something.  I did it on purpose and he he opened his eyes after running into a moveable freezer in the middle of the aisle.  "Hmmm..."  His smile was lazy and he looked at peace.  I'm not sure that's who I'd be after coming in the middle of the grocery store.
+"Strawberries and raspberries, unless you don't like either.  Bacon and eggs and milk."  His eyes were still closed he was trusting me to not walk him into something.  I did it on purpose and he he opened his eyes after running into a moveable freezer in the middle of the aisle.  "Hmmm..."  His smile was lazy and he looked at peace.  I'm not sure that's how I would be after coming in the middle of the grocery store.
 
 We grabbed the rest of the items on his makeshift list and I picked up a bar of dark chocolate and dropped it on the counter to pay for it.  He looked at me with a smirk but said nothing as he pulled out his wallet.  I was quicker and handed the clerk the tips he'd been given me. I grinned at him.  "It's your money.  I was planning on giving it back."
 
@@ -62,7 +62,7 @@ He shook his head.  "No.  Natural inclination.  I was hit as a kid by foster par
 
 "Jesus Christ.  If that doesn't kill the mood."
 
-Nox frowned.  "My life didn't start out pretty.  My father's are great, they love me.  I love them.  But I have baggages."
+Nox frowned.  "My life didn't start out pretty.  My fathers are great, they love me.  I love them.  But I have baggages."
 
 "We all have baggage, Nox."  I pressed him against the counter.  "If we go into the bedroom, I don't think we'll leave."
 
