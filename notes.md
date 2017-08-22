@@ -34,7 +34,7 @@ https://www.ciachef.edu/cia-new-york-culinary-science-bachelors-degree-program/
 
 24 W 55th (Alex's apartment)
 
-515 W 52nd St (Nox's apartment -3rd floor)
+515 W 52nd St (Nox's apartment - 3rd floor)
 
 
 
