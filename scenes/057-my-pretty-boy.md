@@ -22,7 +22,7 @@ He laughed.  "Well not anything you did.  But I got it because of you.  You may 
 
 "No.  But I have my parents, my adoption, why not the start of more with you?"  He rolled over on to his back and looked up at me.  "There are a lot more events in our life I'll record on my back."
 
-I kissed him softly and the asked, "Like what?"
+I kissed him softly and then asked, "Like what?"
 
 "I dunno, moving in together, getting married, kids."
 
@@ -38,5 +38,5 @@ He whispered against my lips, "What do you want to watch?"
 
 I put on something that I had already seen.  Nox watched the opening credits before he returned to his back and his fingers traced the lines of my stomach and chest while he watched the movie.  His fingers trailed lower and I growled against his neck and grabbed his hand.  He yipped as I bit his neck but he melted into the affection with a soft moan that made my cock twitch against his hip.  His leg pressed closer.  We'd been playing this game too long.
 
-I rolled on top of him and pressed my body into him.  My weight pressed him into the coushins.  The look on my pretty boy's face was priceless particularly when I rolled off him and tugged him up off the couch.  He followed, but his hands roamed from my hips to my back, he was eager.  Fuck I was eager.
+I rolled on top of him.  My weight pressed him into the coushins.  The look on my pretty boy's face was priceless particularly when I rolled off him and tugged him up off the couch.  I walked backwards towards my... no, our bedroom. He followed, but his hands roamed from my hips to my back, he was eager.  Fuck I was eager.
 

@@ -58,9 +58,9 @@ He put his hands on my shoulders and pushed me away and smiled.  "Just live with
 
 "Our place?"  I grinned.  "I like that."  I breathed out slowly to control my feelings and nodded.  "Okay."
 
-On our way out we told the landlor and he just nodded with a muttered, "Not surprised" comment.
+On our way out we told the landlord and he just nodded with a muttered, "Not surprised" comment.
 
-We took a cab to Alex's place because we could take more things with us.  My kitchen was almost empty and I had enough close to last a week, plus all my class work.  In the cab Alex held me close, his arm around my shoulders and I leaned my head against his shoulder.  We spoke in hushed whispers, "After lunch tomorrow, we can hit Ant up for the basketball and drag him and Henry to help us get the rest of the stuff and put what little furniture I have in storage."
+We took a cab to Alex's place because we could take more things with us.  My kitchen was almost empty and I had enough clothes to last a week, plus all my class work.  In the cab Alex held me close, his arm around my shoulders and I leaned my head against his shoulder.  We spoke in hushed whispers, "After lunch tomorrow, we can hit Ant up for the basketball and drag him and Henry to help us get the rest of the stuff and put what little furniture I have in storage."
 
 Alex nodded.  "You sure you want to go play basketball?"
 
@@ -76,7 +76,7 @@ Alex chuckled.  "What?  Too girlie for you?"
 
 Alex couldn't stop laughing.  "No skirts huh?"
 
-"Hell no.  I'm a man.  You can put in in tights but I draw the line a skirts and blouses.  I'm not trans, I don't cross dress."
+"Hell no.  I'm a man.  You can put me in tights but I draw the line a skirts and blouses.  I'm not trans, I don't cross dress."
 
 Alex grinned at me and pressed a kiss to my lips.  "You know I'm only teasing right?"
 

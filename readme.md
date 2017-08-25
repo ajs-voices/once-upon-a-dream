@@ -29,14 +29,14 @@ Nox & Alex in the real world.
 ## Nox Vega-Lucciano
 
 * Nox Vega-Lucciano is the adopted son of Dorian Vega, a senior partner at Hudson, Kennedy & Vega and master chef Marco Lucciano of Fiore, a five star restaurant in Little Italy.
-* Nox works part time in his father's restaurant everywhere from being a waiter to sous-chef, sometimes even covering for Marco running the kitchen while he goes to Culinary Institute of America to obtain his BS in Culinary Science. He's currently starting his junior year.
+* Nox works part time in his father's restaurant everywhere from being a waiter to sous-chef, sometimes even covering for Marco running the kitchen while he goes through culinary school at ICE (an 8 month course in culinary arts and a 7 months course in Restuarant and Culinary management)
 * Nox is twenty-two and a Cancer (Jun 21).
 * Nothing is really known about Nox's birth, who his parents were, he was found abandoned by the dumpsters behind the restaurant Marco worked at weeks old.
 * Marco and Dorian tried to adopt him for years but were thwart with frustration because they were gay men. When Nox was six they were finally able to adopt him.
 * In the six years between Marco finding him and their adopting him, Nox was taken away and given to a couple as a group home while Marco and Dorian were investigated. The husband looked good on paper, but when left alone with the five children he beat one 3 year old to death and abused all the others including Nox. This was the final push for Dorian and Marco to adopt Nox come hell or high water.
 * Nox was diagnosed with PTSD from the trauma he suffered and later with OCPD. He sticks to a rigid schedule and pattern of life. There are some underlying abandonment issues but he feels loved by his parents.
 * Nox's first kiss ended with him getting beaten by the boy who he'd kissed. His first sexual experience was a few months later with a girl who took pity on him and tried to 'change' him. Thus making Nox not really want to let either gender close to him.
-* Before Nox started at CIA he backpacked across Europe cooking in whatever place would take him to earn a few bucks for about a year and a half.
+* Before Nox started at ICE he got his AA degree in Liberal Arts - college wasn't for him.  Before that he backpacked across Europe cooking in whatever place would take him to earn a few bucks for about a year and a half.
 * Nox lives with his fathers in a 2 bedroom apartment that they own on 100 W 57th St # 9N (Currently on sale for $895,000)
 * **Quirks:**  calls women duckling, wears a hoodie/long sleeves at all times, bites his bottom lip, lives by a schedule
 * **Looks:** Chocolate brown eyes with long eye lashes, long fingers to go with a thin frame that takes work to keep muscle on, 6'0" with chestnut colored hair that he dyes the tips of with temporary dye, wears eye liner and either matching nail polish to his hair or black
@@ -61,3 +61,4 @@ Nox & Alex in the real world.
 * Mandy Reed - Drew's wife
 * Veronica Harris - Alex's ex - possible appearance
 * Tristan Collins - Alex's ex - possible appearance
+* Devlin Kane is lead singer of the band House of Crowley.  He is the 'rockstar' Alex sells the first double platnium song to.  He has a two others he's sold to him since then, and Alex is writing one he'll sell to Devlin in story.
