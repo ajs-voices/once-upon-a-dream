@@ -48,7 +48,7 @@ I set the plate in front of Mr. Kennedy.  "Wine?"
 
 I grinned.  "Yes, sir."  I poured a glass of wine that would be paired with the mean.
 
-I watched Mr. Kennedy take a bite and I watched as he closed his eyes and savored the first bit.  He ate several more bites before he took a swallow with the wine.  "When, Alex told me he was dating a wanna-be chef who was the son Marco Lucciano I figured he'd just take over from his father.  Instead I find out he's dating a man who has his eyes set on a bigger goal - his own restaurant with a unique twist, and after tasting this one dish I'm going to say that if he needs any help, we are behind you."
+I watched Mr. Kennedy take a bite and I watched as he closed his eyes and savored the first bit.  He ate several more bites before he took a swallow with the wine.  "When, Alex told me he was dating a wanna-be chef who was the son of Marco Lucciano I figured he'd just take over from his father.  Instead I find out he's dating a man who has his eyes set on a bigger goal - his own restaurant with a unique twist, and after tasting this one dish I'm going to say that if he needs any help, we are behind you."
 
 I looked at him and then down at the paper.  "Alex gave you the unfinished business proposal?"
 
@@ -58,7 +58,7 @@ I laughed.  "No sir, he doesn't forget."
 
 "Why do you think he showed me then?"
 
-"To show you his boyfriend who is living with him isn't clinging to his daddy's coat tails."   I grinned.
+"To show you his boyfriend who he is living with him isn't clinging to his daddy's coat tails."   I grinned.
 
 "I think there is a little bit more to it too."  He picked up the paper and flipped to a section and slide it across the island.
 

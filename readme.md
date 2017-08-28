@@ -62,3 +62,7 @@ Nox & Alex in the real world.
 * Veronica Harris - Alex's ex - possible appearance
 * Tristan Collins - Alex's ex - possible appearance
 * Devlin Kane is lead singer of the band House of Crowley.  He is the 'rockstar' Alex sells the first double platnium song to.  He has a two others he's sold to him since then, and Alex is writing one he'll sell to Devlin in story.
+*
+
+
+novae - plural of stellar explosions that create new temporary star (end of star's life)
