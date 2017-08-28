@@ -62,4 +62,44 @@ Nox came over to me and slung his backpack over his shoulder.  "I'll see you lat
 
 Thankfully I had a shower waiting for me.
 
-I spent about a week thinking about Nox's business plans.  He knew nothing about actual business.  But the detail tht went into the restaurant side of things was extensive.  I hadn't realized just how much there was, or how much my pretty boy had picked up from his father.
+I spent about a week thinking about Nox's business plans.  He knew nothing about actual business.  But the detail that went into the restaurant side of things was extensive.  I hadn't realized just how much there was, or how much my pretty boy had picked up from his father. It was easy to make notes, actually I had just modified Zion's plan and pulled it into Nox's document.  He had a great concept.  He had the skill to do the actual work, but no business chops.  I filled in the holes and then took it to my dad to make sure my thoughts were not going to be legally an issue.  I'd done the same with my own company, let my Dad do the legal thing.  I was overstepping my bounds, this was Nox's project, but I was exicted for him and myself actually.  I couldn't help it.
+
+I left the papers with my dad and we went on with life as usual.  Living with Nox was different.  Our schedules didn't mash up at all.  Most days we only saw each other for a few hours in the morning.  And only because I broke up my sleep to eat breakfast - which was well worth the displeasure of waking up before I had a good 8 hours of sleep.  But the time we spent together was better now than just seeing each other on scheduled times.  It all felt much more schduled now and it was a little mind blowing how easy Nox just flowed through life with a schedule.
+
+I knew his OCPD was mild compared to others, but living with him I saw it unfold in a new light.  Those first few weeks were tough.  Everything was in a different place, and he had a hard time adjusting to it.  Mandy hadn't organized his things the right way.  And he'd spent three days organizing every closet in the house.  Obessive was not even the word to begin to cover how it went.  But being the foot in mouth guy I am I asked him, "Why do you care if it's organized?"
+
+He looked up from his spot in front of the closet while he sorted through old pill bottles.  "Right now this is calming," he said.  I'd seen the way his shoulders had slumped more and more.  He wasn't sleeping well.  I guess I hadn't made the connection until he said it, "Right now everything is overwhelming.  I need to control something."  He grinned at me, "And I have no special occassion to get a new tattoo for.  So I do this."
+
+I sat down on the floor against the wall and watched him.  We spent the afternoon talking about his issues.  He did most of the talking, I listened.  I felt overwhelmed but he assured me it wouldn't be like this forever.  "Change is hard."  He said.  He was right.  I was adjusting too.  Just didn't have the same things to overcome.
+
+And before long Nox was his normal self.  And those two weeks were nothing in comparison to the rest of our life...
+
+And that was the scary part.  My  mother was pestering me to meet Nox.  Said she wanted to meet the boy who was going to end her grandbaby dream.  She was being melodramatic and I knew she didn't mean it.  But until she stopped with the drama I wasn't bringing Nox home.  When I had Sunday brunch with my family, Nox went home to his.  I picked up him and then the rest of the day was ours.  It was our day.
+
+Saturdays and Wednesdays were still the same.  So  when Drew needed help there was no real question about whether or not I'd do it, but I when I got back from the delivery I hadn't expected to see my father eating food and Nox reading a print out.  Nox looked over the paper with a wide smile.  "Why didn't you show me this?"
+
+I shrugged.  "I have my own perfectionism."  I stuck my tongue out at him.  "I wanted my dad to make sure there wasn't some reason why it wouldn't work - on the legal front."
+
+I looked at my dad and waited for his answer since he was obviously here to tell me.
+
+My father never looked up from his plate as he finished eating whatever was on tap for the day.  When the plate was clean and he was using a peice of bread to clean the sauce from the plate he looked up at me.  "Normally, I'd advise against co-signing with a current lover for the fear that you'll break up.  It's not you Alex, or even Nox, just a general advisement.  And while I still don't suggest it, there are no reasons why you can't use the storage facility Zion purchased next door.  Renovate it and make the restaurant.  I'd suggest you keep both businesses separate, have the restaurant pay Zion a leasing fee, that way if one goes under you aren't at least taking them both down."
+
+I nodded, "Of course.  And we haven't even discussed anything remotely close to that."  I looked at Nox who was still reading the paper my dad had given him.
+
+"Anything else, Dad?"
+
+"Your mother wants to have dinner - with you both.  If you don't arrange it soon, she will just stop by."  He said.
+
+"As if that has ever stopped either one of you."  I groaned out.
+
+My father laughed as he stood up and walked around the bar to interrupt Nox's reading.  "Nox, it was a pleasure to finally met you.  I would very much like to meet your fathers."
+
+Up until that moment Nox was fine, then all blood rushed away from his face as he paled.  "I don't think Dorian is ready for that just yet.  He's only just starting to come to terms with me."
+
+Nox wasn't completely returned to normal, his color was still off.  The eyeliner made him look worse than it really was.  He sounded perfection normal as he invited my parents to lunch, "Why don't you and Mrs. Kennedy join us here next Saturday for lunch.  I'm sure we can talk my parents into coming.  And talk Max and Drew into another night.  Or Alex can take them left overs for a week."
+
+"I already do that."  I sighed.  "Fine.  You are going to make us all fat you know that right?"
+
+He grinned at me but he didn't say anything, he usually made a comment that does he look like his food makes you fat?  Which usually prompted a lot of flirting and hands wandering afterwards.  I saw the twinkle in his eye and knew exactly what he was thinking.
+
+My father accepted the invitation and I had my own panic attack.  My mother was going to meet my boyfriend... fuck!
