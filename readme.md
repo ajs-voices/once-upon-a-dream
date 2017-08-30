@@ -66,3 +66,6 @@ Nox & Alex in the real world.
 
 
 novae - plural of stellar explosions that create new temporary star (end of star's life)
+
+
+Devlin Kane, 31, lead singer of House of Crowley, rock star extroidanaire, 6 foot tall, his deep brown shoulder length hair fell in layers around his fallen angel face, dark chocolate eyes, chiselled lips
