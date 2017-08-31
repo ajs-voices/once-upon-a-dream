@@ -80,7 +80,7 @@ The front door opened and closed and soon Alex was in the kitchen, "Why you home
 
 I smiled at him.  "I needed to talk to you."
 
-"That doesn't sound forboding at all." Alex joked but I could hear the worry in his voice.
+"That doesn't sound foreboding at all." Alex joked but I could hear the worry in his voice.
 
 "It's not **that** kinda talk.  Me and you we are good.  It has to do with the last 6 weeks of classes.  I told you about the externship."
 
