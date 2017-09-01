@@ -56,9 +56,9 @@ He shook his head and blurted out, "God, no."
 
 "Then, there is nothing to worry about."  I kissed his forehead.  "But you **will** go to Vegas without me." His eyes flicked up to meet mine.  Nox scanned my expression, the tone of my voice had held a bit of command in it.  I knew how to manipulate him.  I tried not to do it, but this, this was worth the effort.  He wasn't going to miss this oppurtunity because of his own bullshit or because of me.  He'll be fine.  I knew it.  "I'll come visit when my schedule calms down."  His eyes lit up and there was a small smile.  "But not until after you've completely adjusted."  His smile turned to a grin.  I knew he was up for the challenge.
 
-He wrapped his arms around me and pulled me close against his body.  "Your dad already told me about Vegas."
+He wrapped his arms around me and pulled me close against his body.  "Your dad already told me about Vegas." I said.
 
-He looked up at me and shook his head.  "Of course he did."  Nox took a big sigh an stood up.  Pressing his body against mine.  He bit his bottom lip and I kissed him. He moaned into my mouth and I could feel his growing hardon.  "Bedroom, please."
+He looked up at me and shook his head.  "Of course he did."  Nox took a big sigh and stood up.  Pressing his body against mine.  He bit his bottom lip and I kissed him. He moaned into my mouth and I could feel his growing hardon.  "Bedroom, please." he said.
 
 I didn't need to be asked twice.
 

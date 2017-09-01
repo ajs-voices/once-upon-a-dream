@@ -69,3 +69,10 @@ novae - plural of stellar explosions that create new temporary star (end of star
 
 
 Devlin Kane, 31, lead singer of House of Crowley, rock star extroidanaire, 6 foot tall, his deep brown shoulder length hair fell in layers around his fallen angel face, dark chocolate eyes, chiselled lips
+
+He's the singer but can play guitar and piano also. Before the band was a success he was playing piano and singing in a cheesy old bar. He met Nix there who was working as a bartender, Gryph and Penn were in the military at the time but were just about to finish their tours and when they did the band was formed.
+
+(Drums) At 29 Phoneix ‘Nix’ Blaze was the youngest member of the band. 6 foot even, waist length blonde hair, baby blue eyes, he could have graced the covers of fashion magazines.
+
+(Lead Guitar) Gryphon Ryder was a 6 foot 4 inch bear of a man with shaggy gold shot through with red hair and emerald green eyes. He was currently enjoying his last few months as a 30 year old.
+(Bass Guitar, also plays piano) Penndragon 'Penn' Blaze at age 30 was nearly as good looking as his younger brother but opposite in colouring. Hair black as midnight and worn almost military short and misty grey eyes that seemed they could see your soul. He was almost as tall as Gryph at 6 foot 2 inches.
