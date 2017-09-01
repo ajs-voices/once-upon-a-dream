@@ -66,4 +66,3 @@ Nox chuckled against my lips.  "I could probably say not so sexy things to Alex 
 "I would never."  He said.
 
 Dorian groaned.  "Yes, you would."
-
