@@ -16,7 +16,7 @@ I stumbled after Alex, I really just wanted to curl up in bed around my lover an
 
 Alex turned on the hot water and set the temperature of the water before turning his attention to me.  I grinned at him as he lifted my arms above my head and tugged my shirt off.  "Are you pampering me?"
 
-"No.  I'm taking what I want."  He grined at me.
+"No.  I'm taking what I want."  He grinbed back at me.
 
 "What do you what?" I teased sleepily.
 
@@ -36,7 +36,7 @@ I took the few steps between us and draped my arms over Alex's shoulders pressin
 
 "I never want to, Alex."  I stepped away and leaned lazily against the sink counter.  "I thought we were past this?"
 
-"Me too.  But you're leaving.  You're going someplace even worse than here, were sex **is** the main attraction.  You are going to be surrounded by people who want to get down and dirty, who are into the things you are into.  Where does that leave me?"  Alex shoved his hands through his hair and pulled in his lips in fustration.  I dropped my eyes and stared at the floor.  It didn't matter now that I was standing their naked.  After a few moments of strained silence Alex added.  "I know you offered to stay.  But you can't miss this oppurtunity because of me.  I won't let you do what I did.  My life could have been a whole lot different than it is now. I don't want you to have regrets because of me."
+"Me too.  But you're leaving.  You're going someplace even worse than here, were sex **is** the main attraction.  You are going to be surrounded by people who want to get down and dirty, who are into the things you are into.  Where does that leave me?"  Alex shoved his hands through his hair and pulled in his lips in fustration.  I dropped my eyes and stared at the floor.  It didn't matter now that I was standing there naked.  After a few moments of strained silence Alex added.  "I know you offered to stay.  But you can't miss this oppurtunity because of me.  I won't let you do what I did.  My life could have been a whole lot different than it is now. I don't want you to have regrets because of me."
 
 I sighed.  "I will never regret you, Alex."  I grabbed my clothes and walked into the bedroom.
 
@@ -50,7 +50,7 @@ Alex called after me, "I thought we were past running away, where are you going,
 
 "Show me.  Show me exactly what you need from me to be happy."
 
-I sighed.  I stalked over to Alex and growled as I lifted his shirt over his head roughly.  And shoved his pants and boxers down around his ankles.  I had to fight back the desire to take him right then to show him I wasn't a submissive little shit he had to worry about.  Maybe that's what he needed to get over this.  But I closed my eyes and put my hands on his chest.  My voice was quiet in my anger.  "This." I ran my fingers over his chest and down to his hip.  "Is all that I need."  I pressed a single finger to his lips.  "I love this man in front of me.  For all his insecurities, for all his ingenuinty and for all his faults.  I love him.  I need him, exactly as he is.  I don't want to change the man before me.  And if we have to keep having these fights then so be it.  I'm not walking away.  I'm not going to find something better, or newer or more domineering.  I don't want that, Alex.  I want you.  In all you glory and flaws.  This is the man I want and need and love.  And if he can't see that I really don't know how to show him anything more than I already have."  I sighed.  "Do you truly want me to submit completely to you, Alex?  Show you the difference between me and a submissive?"
+I sighed.  I stalked over to Alex and growled as I lifted his shirt over his head roughly.  And shoved his pants and boxers down around his ankles.  I had to fight back the desire to take him right then to show him I wasn't a submissive little shit he had to worry about.  Maybe that's what he needed to get over this.  But I closed my eyes and put my hands on his chest.  My voice was quiet in my anger.  "This." I ran my fingers over his chest and down to his hip.  "Is all that I need."  I pressed a single finger to his lips.  "I love this man in front of me.  For all his insecurities, for all his ingenuinty and for all his faults.  I love him.  I need him, exactly as he is.  I don't want to change the man before me.  And if we have to keep having these fights then so be it.  I'm not walking away.  I'm not going to find something better, or newer or more domineering.  I don't want that, Alex.  I want you.  In all your glory and flaws.  This is the man I want and need and love.  And if he can't see that I really don't know how to show him anything more than I already have."  I sighed.  "Do you truly want me to submit completely to you, Alex?  Show you the difference between me and a submissive?"
 
 Alex shook his head.  "No, I don't want you submissive."
 
