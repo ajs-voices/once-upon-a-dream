@@ -1,14 +1,14 @@
 # Zion Christmas
 
-I had a few hours to kill before I was due at Zion for our annual Christmas bash.  It was the only time we closed the club that wasn't a major holiday.  We weren't going to be open for three full days in a row this year.  We did open on New Years Eve - what club would close on the biggest party night.  I shouldn't think about Nox, but he's not far from my mind as I got ready.  Was he playing a game?  What was he going to do about his father?  What was I doing to do?  I mean fuck, my Spanish was a bit rusty but I caught most of it.  I wasn't sure how Mr. Vega was able to hide so much of his life.  Pretty boy wasn't exactly subtle and neither was Chef Marco.  How did my dad not know?  Maybe he did.  Seems like something he'd keep quiet if there was a potential conflict of interest with clients.
+I had a few hours to kill before I was due at Zion for our annual Christmas bash.  It was the only time we closed the club that wasn't a major holiday.  We weren't going to be open for three full days in a row this year.  We did open on New Years Eve - what club would close on the biggest party night.  I shouldn't think about Angel, but he's not far from my mind as I got ready.  Was he playing a game?  What was he going to do about his father?  What was I doing to do?  I mean fuck, my Spanish was a bit rusty but I caught most of it.  I wasn't sure how Mr. Vega was able to hide so much of his life.  Pretty boy wasn't exactly subtle and neither was Chef Marco.  How did my dad not know?  Maybe he did.  Seems like something he'd keep quiet if there was a potential conflict of interest with clients.
 
 I needed to change my train of thought.  Work was a better option than what I was going to do about a non-existant relationship with a man I barely knew.  But I still couldn't keep my mind from him.  I put on more Zion appropriate clothing, tight black jeans and a matching black t-shirt that said Zion.  I could work from home, but there was no point in staying, I could finish up my paperwork at Zion just as easily and Drew and Max would be there making final touches.  Mandy would be there too, hopefully they found a babysitter.  This was their first bash with their new baby.  They probably both needed the evening alone away from the kid.
 
-Thinking about Drew and Mandy brought the conversation I'd had with Nox earlier to mind.  The tattoos and the stories I didn't tell him.  Tris and Very had screwed me big time, but when it repeated itself with Drew and Mandy I swore off dating became like the machine the tattoo depicted.  I wasn't in love with Drew or Mandy when we all got together for a few rounds.  But they fell in love.  They never asked for me to step out.  It wasn't the same situation, I just stopped as soon as I saw them together and in love I just bowed out.  I didn't have any hard feelings.  Drew and I hung out.  Mandy and I still hung out.  We just weren't having sex anymore.  I was happy for them.
+Thinking about Drew and Mandy brought the conversation I'd had with Angel earlier to mind.  The tattoos and the stories I didn't tell him.  Tris and Very had screwed me big time, but when it repeated itself with Drew and Mandy I swore off dating became like the machine the tattoo depicted.  I wasn't in love with Drew or Mandy when we all got together for a few rounds.  But they fell in love.  They never asked for me to step out.  It wasn't the same situation, I just stopped as soon as I saw them together and in love I just bowed out.  I didn't have any hard feelings.  Drew and I hung out.  Mandy and I still hung out.  We just weren't having sex anymore.  I was happy for them.
 
 You'd think the first time I would have learned not to introduce people into my sex life at the same time.  I was a weak man.  I wanted both worlds, but life didn't work that way.
 
-I let it all go, all thoughts of Nox, of past relationships and took a deep breath.  Tomorrow was Christmas Eve - tonight was a party.  And one I would feel comfortable at.  I knew these people, they were closer than family.  I could bring a date - I should bring one.  But I wasn't about to bring Jennifer and Nox was working.
+I let it all go, all thoughts of Angel, of past relationships and took a deep breath.  Tomorrow was Christmas Eve - tonight was a party.  And one I would feel comfortable at.  I knew these people, they were closer than family.  I could bring a date - I should bring one.  But I wasn't about to bring Jennifer and Angel was working.
 
 No matter what I did he never left my thoughts.  All the more reason to go to Zion and forget about everything that happened today.
 
@@ -20,7 +20,7 @@ There was no line, it was still early even if the marquee didn't read "Closed Su
 
 The one and only night we only let in people on the list - invite family and close friends only is the rule.  I never had anyone on my arm.  Never anyone on the list.  My close friends were all here and my family wasn't interested in the scene.  My cousin's might but they had their own things and I'd prefer to keep this my thing.
 
-Dino was at the door waiting as usual.  He sat inside the door waiting for someone to knock.  We didn't have a sliding window like you see in the movies.  Usually the door was propped open and Dino or Mike would do their thing.  I'd seen Nox on any number of occassion kissing his way in.  I didn't think Dino or Mike were particularly into men, but Nox was right about one thing - he was pretty, but not in the way a woman was traditionally pretty.  He was tall and thin, but solid.  His eyes lashes were long as were his fingers, arms and legs.  If he didn't maintain his build he'd probably be one of those gangly men, too thin for their own good.  If he dressed like he did last night for the gala he fit pretty to a T.  Even in jeans and a t-shirt he was pretty.
+Dino was at the door waiting as usual.  He sat inside the door waiting for someone to knock.  We didn't have a sliding window like you see in the movies.  Usually the door was propped open and Dino or Mike would do their thing.  I'd seen Angel on any number of occassion kissing his way in.  I didn't think Dino or Mike were particularly into men, but Angel was right about one thing - he was pretty, but not in the way a woman was traditionally pretty.  He was tall and thin, but solid.  His eyes lashes were long as were his fingers, arms and legs.  If he didn't maintain his build he'd probably be one of those gangly men, too thin for their own good.  If he dressed like he did last night for the gala he fit pretty to a T.  Even in jeans and a t-shirt he was pretty.
 
 "What's got you in a sour mood?" Dino asked as he let me in the door.
 
@@ -44,11 +44,11 @@ I shook my head. "Long story."
 
 Max raised his eyebrow and smirked but he didn't say anything.  "Fine."  I groaned.  "I brought him home."  I scrubbed my fingers through my hair and collapsed back into my chair.  "Fuck, Max.  I brought him home.  He cooked for me and I walked him home and met his parents."
 
-I rushed forward and leaned in to be descrete but it came out more of a shout than a whisper.  "Get this, one of his father's is Dorian Vega.  And he wasn't pleased to see Nox with me."  I smirked. "I'm sure the hickey's all over his neck didn't help matters."  I collapsed against the chair again.  "All joking aside, I'm fucked."
+I rushed forward and leaned in to be descrete but it came out more of a shout than a whisper.  "Get this, one of his father's is Dorian Vega.  And he wasn't pleased to see Angel with me."  I smirked. "I'm sure the hickey's all over his neck didn't help matters."  I collapsed against the chair again.  "All joking aside, I'm fucked."
 
 "As in Hudson, Kennedy and Vega?  That Vega?"  Max asked.  "I thought he was with some hot Spanish chick."
 
-I shrugged.  "Who the fuck knows?  He was sitting in a robe on the couch reading the paper and Chef Marco waltzes into Nox's bedroom to introduce himself and scold Nox in a round about sort of way."
+I shrugged.  "Who the fuck knows?  He was sitting in a robe on the couch reading the paper and Chef Marco waltzes into Angel's bedroom to introduce himself and scold Angel in a round about sort of way."
 
 "He lives at home?"  Max smirked.
 
@@ -66,7 +66,7 @@ Drew was behind the bar and his beautiful blond wife sat in front at the bar.  T
 
 "Mine is my first favorite, sorry, Mands."
 
-Max sat down next to Mandy.  "Alex needs a double."
+Max sat down next to Mandy.  "Zane needs a double."
 
 Drew looked at me and frowned.  "I'm fine.  Long day."
 
@@ -108,7 +108,7 @@ I sighed.  "So you all know he's a player.  He's never with the same girl in her
 
 "Yeah I've seen him too."  I stood up with my drink in hand.  "You guys aren't helping at all."
 
-Mandy caught my arm.  "Alex, honey, don't over think it.  If you like him, go with it.  People change.  But if you are doing it because your dad doesn't approve then I'd let him go.  Don't fuck up your relationship with your dad because he wants you to get married and have kids.  Talk to them both.  You might find something surprising as a result."
+Mandy caught my arm.  "Zane, honey, don't over think it.  If you like him, go with it.  People change.  But if you are doing it because your dad doesn't approve then I'd let him go.  Don't fuck up your relationship with your dad because he wants you to get married and have kids.  Talk to them both.  You might find something surprising as a result."
 
 Several others walked in and Mandy let my arm go.  It was time to focus on my people.  The family I was curating here.  No more pretty boy and no more confusion.  Just family.
 

@@ -1,6 +1,6 @@
 # Dinner for Three
 
-**Nox**
+**Angel**
 
 I needed to go out and destress but the cold weather brought with it illness.  And my family wasn't immune to it.  After my final I found a text from Baboo that said he was sick couldn't make it in.  My dad had asked me to cover for him.  He knew I had a final the next morning.   So there I was standing behind the stove doiong the one thing I loved above everything else - cooking.
 

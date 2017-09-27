@@ -1,6 +1,6 @@
 # Bar Tending
 
-**Nox**
+**Angel**
 
 The best part of this job was watching all the idiots.  But it was still getting going and there weren't any yet.  But there would be.  The guy who drank too much.  The good girl who got slutty with the next drink.  The boss who let it all hang out.  Not that I expected that of this crowd they were all rather stiff.
 
@@ -8,13 +8,13 @@ Even an hour in the dance floor was still empty.  I'd refilled champange classes
 
 I saw the major of the good city of New York shmoozing with police chief.  Dad had escorted Angelina in about 30 minutes ago.  Baboo had stopped in then too to see how things were going before heading back into the kitchen to yell at the staff.  I was so glad I was out here.  All I had to do was entertain the guests when they came to me.  But with the amount of wait staff walking the floor there was little need to come to me until the champagne ran dry and everyone wanted their own brand of drink or wine.
 
-I didn't mind.  I liked people watching.  Alex's father showed up a few minutes after Dad, but Mr. Hudson had been here when I got here and he was already holding a flute glass.
+I didn't mind.  I liked people watching.  Zane's father showed up a few minutes after Dad, but Mr. Hudson had been here when I got here and he was already holding a flute glass.
 
 The band playing was likely the reason no one was dancing, it was mostly waltzes.  All slow and couple oriented.  There was a lot of mingling and drinking and eating the horderves my father had made.  It was all very elegant.
 
 The drinking was picking up and there were fewer and fewer servers passing out champagne, white and red wine floated around but the men were gathering around now wanting rum and coke.  Some of them had bizarre requests that I gladly made for them.  The women liked their fruity drinks some of them came looking for the harder stuff.
 
-In the passing crowds I could have sworn I saw Alex again with that girl on his hip.  They were dancing or at least what passed for dancing when you were trying your hardest not to make out on the dance floor.  I sighed and paid attention to the people in front of me.
+In the passing crowds I could have sworn I saw Zane again with that girl on his hip.  They were dancing or at least what passed for dancing when you were trying your hardest not to make out on the dance floor.  I sighed and paid attention to the people in front of me.
 
 My tip jar was filling up.  Shane would be happy.  Normally when I covered I didn't give the tips to the one who I covered for but since Shane only missed it because his kid was in the NICU I had decided I would give it all to him and his family to help cover expenses.  It was Christmas after all.
 

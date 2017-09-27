@@ -1,6 +1,6 @@
 # Business Dinner
 
-**Alex**
+**Zane**
 
 I spent most of the day in the studio messing around with the song I'd been toying with.  The dream I'd had a few nights back played over and over - the bits I remembered anyway.  And the lyrics were playing out well now that I had something to work with.  But it wasn't all fun and games.  It was our weekly business dinner with Drew and Max.  I spent all morning after the gym in the office drafting the weekly reports.  I don't know why I waited until the last minute to do these things.  You'd think I'd know better, but dumb ass me put it off.
 
@@ -20,9 +20,9 @@ Shit!  "Oh.  Sorry for your loss."
 
 Max's lips turned into a smile and patted my back.  "Really didn't know the woman, I only went to support my Mom, since Dad's away on business."  He sighed, "He's always away on business these days. I think he's having an affair.  I should kick his ass."
 
-Drew sat down in the middle of the conversation and asked, "Who's ass we kicking?  Alex's?  I already did that."  He smirked at me.  "He was a little distracted."
+Drew sat down in the middle of the conversation and asked, "Who's ass we kicking?  Zane's?  I already did that."  He smirked at me.  "He was a little distracted."
 
-"Oh?"  Max asked.  "What had your attention this morning Alex?  You find some girl to take home?"
+"Oh?"  Max asked.  "What had your attention this morning Zane?  You find some girl to take home?"
 
 I sighed and was grateful our server arrived.  She was a pretty thing with bright green eyes.  She looked nervous, her first day.  "I'm Nadia, I'll be your server today. Can I take your order?"  she asked
 

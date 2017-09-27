@@ -1,6 +1,6 @@
 # Text Message
 
-**Alex**
+**Zane**
 
 The food was excellent.  Desert was good, but the coffee was better.  I was still a little shocked to find out pretty boy was our chef.  Drew and Max didn't bring it up again, at least they knew when not to meddle or get involved.
 
@@ -14,7 +14,7 @@ I looked at him polishing that glass like he wasn't watching us leave.  He set i
 
 My phone beeped and I glanced at the number, there was no name. I had no idea who it was.  I almost didn't read it except I saw the snippet underneath.  "Next time let me cook for you for real."   I opened the message after I pulled my coat on.
 
-Unknown Number: _Next time let me cook for you for real.  You'll be my only distraction.  :) ~Nox_
+Unknown Number: _Next time let me cook for you for real.  You'll be my only distraction.  :) ~Angel_
 
 I looked back but the bar was empty.  So much for that.  Drew grabbed my elbow, "Come on lover boy, let's go!  I'll drop you off."
 

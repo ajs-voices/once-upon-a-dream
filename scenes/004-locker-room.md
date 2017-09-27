@@ -1,6 +1,6 @@
 # Locker Room
 
-**Nox**
+**Angel**
 
 Class was a fucking disaster.  I hated teaching the beginner class.  It wasn't the beginner class that was the problem, it was the people that were in the gym at the time the class was offered.  It was still early and all the rich women with no real ambition were pretending to be into it for more than the eye candy.  Which is why Jer usually had a female in the beginners class.
 

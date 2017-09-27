@@ -1,6 +1,6 @@
 # Pre-Date Reflections
 
-**Alex**
+**Zane**
 
 It was Thrusday night and I was getting out of a cab dressed in date like garb.  No suit and tie, but my father had inisisted.  He had inisited on a lot of things.  The date being one of those instances.
 
@@ -8,7 +8,7 @@ Tuseday morning he stopped by the apartment.  Didn't even bother knocking and wa
 
 He ran his fingers down the goatee before he was in my closet rummaging around for whatever the fuck he liked.  I was so fucking annoyed at this point I didn't really care that I walked out into my living room in just my boxers.
 
-My father cleared his throat from behind me.  "Alex.  If I had brought guests..."
+My father cleared his throat from behind me.  "Zane.  If I had brought guests..."
 
 I interrupted his rant at my behavior.  "If you had brought guests I would have thought you'd do things in the proper order.  You know, like calling first."  I shuffled to the coffee maker and started a pot.  I was drained.  I glanced at the time on the coffee pot and groaned.  8:30 again... what the fuck!  "Dad, what do you want.  I covered a security shift last night I want to go back to bed."
 

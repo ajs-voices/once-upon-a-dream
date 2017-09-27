@@ -1,6 +1,6 @@
 # Get Out
 
-**Alex**
+**Zane**
 
 Christmas came and went.  I was too busy to think about what had happened in Fiore's kitchen.  I hadn't had time to deal with the knowledge that the man I'd been chasing had a safe word.  Or the fact that his supposed friend had tried to force himself on him.  It was the weekend before New Years and Zion was hopping.  I'd been avoiding the gym, hell I'd been avoiding everything but tonight Drew needed another bartender so I came in.  The holidays always brought in more guests.
 
@@ -10,15 +10,15 @@ My tips were great.  But then they never were bad.  When you flirted with both t
 
 It was 3am and Max and I were closing down Zion with a few lingering staff washing down the tables and bar stools while I took stock of the bar.  Max was off making sure everything was in order after a night of drunken festivities by our patrons.  So I was alone with my thoughts.
 
-And it was the first slow moment I'd had all week.  Monday was New Years Eve and I wondered what Nox was going to do.  Hell I was wondering what I was going to do.  Until Christmas eve my plans had been with him.  But we'd not spoken to each other since Christmas eve.  No texts, no bumping into each other.  Complete silence.  I had been avoiding him to a degree but I was also just that busy.
+And it was the first slow moment I'd had all week.  Monday was New Years Eve and I wondered what Angel was going to do.  Hell I was wondering what I was going to do.  Until Christmas eve my plans had been with him.  But we'd not spoken to each other since Christmas eve.  No texts, no bumping into each other.  Complete silence.  I had been avoiding him to a degree but I was also just that busy.
 
 Max stepped behind the bar and frowned, "What's got you scowling so hard?"
 
 I looked up and sighed.  "Nothing."
 
-"Whatever Alex."  Max shook his head.  "If you want to talk I'll be in my office."
+"Whatever Zane."  Max shook his head.  "If you want to talk I'll be in my office."
 
-I didn't want to talk.  I just wanted to get the pretty boy out of my head.  Fucking him hadn't worked.  Not seeing him hadn't worked.  Fighting with him hadn't worked.  I wondered whether or not I'd said those things just to fight and end things.  I wasn't into the whole dominating someone.  Scenes and safe words.  I liked to try new things, but bondage and submission?  I didn't want someone to live to serve.  Which begged to question - what did I want?  Obviously I wanted more of Nox.  I dreamt of him.  He was in my waking thoughts.  No matter what I did I was thinking about him.
+I didn't want to talk.  I just wanted to get the pretty boy out of my head.  Fucking him hadn't worked.  Not seeing him hadn't worked.  Fighting with him hadn't worked.  I wondered whether or not I'd said those things just to fight and end things.  I wasn't into the whole dominating someone.  Scenes and safe words.  I liked to try new things, but bondage and submission?  I didn't want someone to live to serve.  Which begged to question - what did I want?  Obviously I wanted more of Angel.  I dreamt of him.  He was in my waking thoughts.  No matter what I did I was thinking about him.
 
 I'd finished with inventory twenty minutes before Max had come over so I followed him into his office and sat down in one of the swivle chairs and let out a deep huff of air.  "I'm so done with this."  I said.
 
@@ -34,6 +34,6 @@ Max didn't look at me as he asked, "What he do?"
 
 "I'm not miserable."
 
-Max laughed.  "Whatever you say, Alex.  I'm grabbing some breakfast you coming?"
+Max laughed.  "Whatever you say, Zane.  I'm grabbing some breakfast you coming?"
 
 I nodded.  "Yeah, why not."

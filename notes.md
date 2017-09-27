@@ -1,4 +1,4 @@
-# Nox's Europe Trip
+# Angel's Europe Trip
 
 Backpacking trip
 
@@ -29,11 +29,11 @@ https://www.google.com/maps/dir/100+W+57th+St,+New+York,+NY+10019/New+York+Healt
 
 
 
-100 W 57th St (Nox's family apartment)
+100 W 57th St (Angel's family apartment)
 
-24 W 55th (Alex's apartment)
+24 W 55th (Zane's apartment)
 
-515 W 52nd St (Nox's apartment - 3rd floor)
+515 W 52nd St (Angel's apartment - 3rd floor)
 
 
 

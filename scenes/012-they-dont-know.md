@@ -1,6 +1,6 @@
 # They Don't Know
 
-**Nox**
+**Angel**
 
 I was exhausted since my last final an hour ago. I found myself lying in bed in my bedroom thinking about a certain set of blue eyes and a kiss that wasn't a kiss. I wasn't the only one home. Baboo was in the process of getting ready for work when the phone rang.
 
@@ -22,7 +22,7 @@ Baboo laughed.  It had always made me smile when he laughed like the man on lady
 
 I smiled.  "I know Baboo.  But I'm 22 still living at home.  Not exactly ..."
 
-He pressed a finger to my lips, "I do not want to know what you need privacy for Nox.  Boy trouble? Very unlike you, my boy."
+He pressed a finger to my lips, "I do not want to know what you need privacy for Angel.  Boy trouble? Very unlike you, my boy."
 
 "Not trouble."  I sipped at my coffe.  "Just different. He gave me his number.  We had pie."
 
@@ -34,7 +34,7 @@ He pressed a finger to my lips, "I do not want to know what you need privacy for
 
 I laughed.  "No, Baboo.  He came into Fiore like he does every Monday.  I cooked for them.  Your favorite trio on the Chef's special."
 
-"Don't tell me it's the blue eyed one, Nox."
+"Don't tell me it's the blue eyed one, Angel."
 
 "Why?"
 
@@ -50,7 +50,7 @@ He let out an exaggerated sigh.  "You see nothing wrong with the name on the car
 
 "Yeah one of Dad's partners is Kennedy."
 
-"Nox, that's his son.  Do not tell your father you are fawning over a Kennedy.  They don't know about your father.  Don't know about you, don't know about me.  And your father has no intention of letting them in on his little secret.  Why do you think Vega isn't on your legal papers?"
+"Angel, that's his son.  Do not tell your father you are fawning over a Kennedy.  They don't know about your father.  Don't know about you, don't know about me.  And your father has no intention of letting them in on his little secret.  Why do you think Vega isn't on your legal papers?"
 
 I sighed. "You are telling me I can't see him even if I wanted to."
 

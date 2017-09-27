@@ -1,8 +1,8 @@
 # Not Now
 
-**Nox**
+**Angel**
 
-I hung up the phone with Alex.  There really was no point in stalling anymore here.  There was nothing left to clean.  I flipped the lights off in the kitchen and left through the back alley door tossing the last bits of garbage into the dumpster before heading towards the street.
+I hung up the phone with Zane.  There really was no point in stalling anymore here.  There was nothing left to clean.  I flipped the lights off in the kitchen and left through the back alley door tossing the last bits of garbage into the dumpster before heading towards the street.
 
 A figure moved in the shadows and called out.  "Took you long enough."
 
@@ -18,7 +18,7 @@ Ant was a few inches shorter than I was and I looked down into his dark brown ey
 
 It was a quick blur of motion and I found myself pinned against the wall next to us, my hands above my head.  My breath caught, and I gasped from the man handling, the cold rough wall against my back, my coat had ridden up and now was pressed against the cold wall.  I could feel my pants getting tighter and my chest was heaving with desire.  Ant whispered in my ear, "Resa."
 
-I went slack against Ant's hands holding mine and let his kiss and bite at my neck.  I could have let him do this.  But I still had Alex on my mind.  I could barely breathe, Ant knew what I liked.  How I liked it.  I croaked out, "Red."
+I went slack against Ant's hands holding mine and let his kiss and bite at my neck.  I could have let him do this.  But I still had Zane on my mind.  I could barely breathe, Ant knew what I liked.  How I liked it.  I croaked out, "Red."
 
 Stunned Ant held me against the wall but had stopped everything else.  When I could stand on my own he let me go completely.  I could only make out the frown on his face in the shadows.  "You've never told me no like that before I didn't even do anything."
 
@@ -32,7 +32,7 @@ Ant laughed.  "No really."  He took a second look at me and then took a step tow
 
 I smiled.  "Maybe."
 
-Ant sighed and stepped away from me.  "Fuck, Nox.  You serious?  You've never said no."
+Ant sighed and stepped away from me.  "Fuck, Angel.  You serious?  You've never said no."
 
 "I like him, what can I say."  I started back for the street.  "I'm getting something to come down, you want to come with?"
 

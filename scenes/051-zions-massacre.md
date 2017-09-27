@@ -1,10 +1,10 @@
 # Zion's Massacre
 
-**Alex**
+**Zane**
 
-I was miserable after Nox left.  After I had slept until 9pm the next day my entire schedule of sleep was completely trashed and I set myself into the nocturnal animal of a club goer.  It worked for the most part.  I wined and dined a new vendor during the dinner hours after waking up.  I worked club hours, sometimes crashing in my office there because I just passed out.
+I was miserable after Angel left.  After I had slept until 9pm the next day my entire schedule of sleep was completely trashed and I set myself into the nocturnal animal of a club goer.  It worked for the most part.  I wined and dined a new vendor during the dinner hours after waking up.  I worked club hours, sometimes crashing in my office there because I just passed out.
 
-Max and I hit the gym after shifts at Zion.  I didn't worry about running into Nox.  But from the rumors, he'd not been coming in something about being sick.  Or not feeling well.  I doubted it, he was just avoiding me.  And honestly I was avoiding him.
+Max and I hit the gym after shifts at Zion.  I didn't worry about running into Angel.  But from the rumors, he'd not been coming in something about being sick.  Or not feeling well.  I doubted it, he was just avoiding me.  And honestly I was avoiding him.
 
 I threw myself into work.  It made me happy enough and took my mind off of things.  My dad tried to get me to invite my boyfriend over for dinner and when I told him that wasn't likely to happen since it didn't exist anymore, he tried pushing Jennifer again.
 
@@ -62,13 +62,13 @@ But I didn't do anything with that new information I'd blurted out.  I drove eve
 
 Last year we did Blue Valentine.  Lots of broken things, and blue everywhere.  The movie was not about valentine's day itself but I could play with the blue.
 
-This year, I went violent again and not movie related - the Saint Valentine's Day massacre.  Drew came up with the clever flyers and I loved it.  Perfect and I doubted any of our normal customers would get it.  Dress appropriately could mean so many things.  So when I was in the security booth and saw the one person I really didn't want to see I did something stupid and sent Mike a message through Max.  Told him I wasn't here.  Nox looked up in the camera wearing a theme appropriate costume and that hat made him look like the ganster is was portraying.  But he had the frown, and my heart crumbled.  My mood went to shit as I locked myself away in the security booth office trying to work.  But close enough to the cameras that I could see him if I wanted to.
+This year, I went violent again and not movie related - the Saint Valentine's Day massacre.  Drew came up with the clever flyers and I loved it.  Perfect and I doubted any of our normal customers would get it.  Dress appropriately could mean so many things.  So when I was in the security booth and saw the one person I really didn't want to see I did something stupid and sent Mike a message through Max.  Told him I wasn't here.  Angel looked up in the camera wearing a theme appropriate costume and that hat made him look like the ganster is was portraying.  But he had the frown, and my heart crumbled.  My mood went to shit as I locked myself away in the security booth office trying to work.  But close enough to the cameras that I could see him if I wanted to.
 
-Max kept an eye on me but he didn't say anything until I was standing in the doorway overlooking all the cameras.  He pointed to the third camera and my eyes were instantly drawn to the screen.  I don't know what I expected to see.  But it wasn't Nox standing next to the bar.  He had on a fake smile and he was chatting with a guy.  But everything about his posture said he wasn't interested.  They went out on to the dance floor and immediately started dancing with a couple of girls.  I walked back into the office and shut the door behind him.
+Max kept an eye on me but he didn't say anything until I was standing in the doorway overlooking all the cameras.  He pointed to the third camera and my eyes were instantly drawn to the screen.  I don't know what I expected to see.  But it wasn't Angel standing next to the bar.  He had on a fake smile and he was chatting with a guy.  But everything about his posture said he wasn't interested.  They went out on to the dance floor and immediately started dancing with a couple of girls.  I walked back into the office and shut the door behind him.
 
 I heard Drew on the Max's walkie.  "I could use his help out here."
 
-Max sighed.  "Nox is there, I don't think he'll go out."
+Max sighed.  "Angel is there, I don't think he'll go out."
 
 I sighed and opened the door.  "If Drew needs help I'm on it."
 
@@ -80,7 +80,7 @@ I gave him a smile and patted the bar in front of him and moved on.  The rest of
 
 We called last call and people started clearing out.  He didn't move.  And no one moved him.  I hadn't said anything, maybe Max or Drew had.
 
-The club was empty except for staff and Nox.  He set the cup down and looked around.  He smiled at Drew.  "Can I help with anything?"  He was still avoiding looking directly at me.
+The club was empty except for staff and Angel.  He set the cup down and looked around.  He smiled at Drew.  "Can I help with anything?"  He was still avoiding looking directly at me.
 
 Drew looked at me and I shrugged.  Max put his arm around my shoulder and tugged me in their direction.  His voice was deep and rumbly, "We could always use a hand cleaning up.  Collect the garbage and wash down the tables.  You know how to bus tables."
 

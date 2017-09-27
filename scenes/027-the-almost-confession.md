@@ -1,14 +1,14 @@
 # The Almost Confession
 
-**Alex**
+**Zane**
 
 I was still a little dazed by what went down in the shower.  If this was more than a one night thing we had a lot to talk about.  And it was a talk I was looking forward to having, but still he was a player of the worst kind.  I recalled a conversation I had with Max one night when I covered a shift at Zion.  Watching the cameras was a boring job.  But it was always entertaining.  I found a quiet corner that seemed to have occassional visitors.  It was still on the dancefloor but other than other dancers there was only one camera that could see it and it wasn't the greatest angle.  But couples were in and out of the corner constantly.
 
-I'd seen Nox many times before over the past few years at the club.  And I'd seen him in the corner with girls of every flavor.  Never the same one twice.  Max saw what I was watching and laughed.  His voice boomed in the small security booth when he spoke to Rick sitting next to me.  "Alex found Necker's Nook, and our favorite play boy."
+I'd seen Angel many times before over the past few years at the club.  And I'd seen him in the corner with girls of every flavor.  Never the same one twice.  Max saw what I was watching and laughed.  His voice boomed in the small security booth when he spoke to Rick sitting next to me.  "Zane found Necker's Nook, and our favorite play boy."
 
 I had to ask, "Necker's Nook?  And your favorite playboy?"
 
-Rick came over and stood behind me, his large finger poked at the screen.  "That's Nox alright.  If he didn't tip well I don't think he'd still be coming around."
+Rick came over and stood behind me, his large finger poked at the screen.  "That's Angel alright.  If he didn't tip well I don't think he'd still be coming around."
 
 "He's bribing us?"  I asked.  Only slightly annoyed.
 
@@ -40,7 +40,7 @@ He frowned, "You sure?  You can come up and I can give your things back?"
 
 I chuckled.  "We'll see.  It gives you an excuse to see me again."
 
-His face lit up in a smile and he bit his bottom lip and I watched as the relazation it him and he let it go with a sheepish grin.  "Habit."  He said to explain his lapse.  He sat down on the bed and tugged my shoes on.  It was probably good thing we were close to the same size.  Nox's voice was quiet. "You want to me to see you again?"
+His face lit up in a smile and he bit his bottom lip and I watched as the relazation it him and he let it go with a sheepish grin.  "Habit."  He said to explain his lapse.  He sat down on the bed and tugged my shoes on.  It was probably good thing we were close to the same size.  Angel's voice was quiet. "You want to me to see you again?"
 
 I looked at him - really looked at him.  I saw the bold and brazen man who made friends at Zion and could probably get away with murder there and right now he was not very confident.  The shy smile, he wouldn't meet my eyes with that question, so quiet when I knew he wasn't any of those things.  "Why wouldn't I?" I ask.
 

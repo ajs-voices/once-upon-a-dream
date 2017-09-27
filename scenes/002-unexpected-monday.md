@@ -1,6 +1,6 @@
 # Unexpected Monday
 
-**Nox**
+**Angel**
 
 It was fucking cold outside.  Snow was falling and I walked to the gym like I always did.  By the time I got warmed up enough to actually do my work out I was already running a few minutes later than I liked.  The gym was emptier than it usually was.  Cold and snow was not pleasant to get out in.  I had most of the free weights to myself.  I was still doing deadlifts when I usually left, which meant a certain blue-eyed man walked past me.  I was slightly disappointed as he was still bundled up in his coat and hand.  He was blowing into his hands to warm them up.  Like I said it was fucking cold outside and I wasn't looking forward to getting back out in the weather.  But I had a fucking final in a few hours.  I hated algebra.
 

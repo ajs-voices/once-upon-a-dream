@@ -6,7 +6,7 @@ The small whimper from his mouth was the only sign he couldn't wait.  He moved a
 
 I groaned as he sucked and licked and rolled my cock around his mouth.  He inched closer and took me deeper until I was hitting the back of his throat.  He could make me come now but I pulled out of his hot wet mouth.  "Fuck pretty boy, you are good at that."  He beamed at the praise and returned to his position with his arms above his head.
 
-I slide the condomn on from the foil packet.   Nox watched me as I pulled his legs into my lap he only moved to help me.  I had to ask, "You like this?"
+I slide the condomn on from the foil packet.   Angel watched me as I pulled his legs into my lap he only moved to help me.  I had to ask, "You like this?"
 
 "All of it."  He breathed out.
 

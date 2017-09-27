@@ -1,6 +1,6 @@
 # Getting Ready
 
-**Nox**
+**Angel**
 
 I had to wear a tux just like Dad.  But in addition I got a little white apron which set me apart from guests while I worked.  This was my first gala event I had attended.  I wasn't allowed any other time.  And until I turned twenty-one I could serve alcohol anyway so the point was moot.  Shane was Fiore's only show bartender on staff officially.  But it was one of the things I'd been learning since I was 16 and started drinking without my parents knowledge.  Dad had been pissed.  Baboo only rolled his eyes then started teaching me out to mix drinks.  The same showmanship you used in the kitchen could be applied to the bar.
 
@@ -22,7 +22,7 @@ Dad sighed.  "You know why."
 
 Marco Lucciano always road to the gala with Dorian Vega and his escort - Miss Angelina Dela Rosa.  She was a native of Madrid Spain as well as my father, and they'd known each other for years before they both came to the United States.  She came to presue her dance career and my father his law degree.  And here they both stayed.  Angelia was my dance instructor through out school.  She taught everything between stints in the ballet companies in New York.
 
-They would pick up Angelina and go to the gala together.  Dad supposedly taking their head chef to the gala in style as part of the luxury of using him for the job.  Since Fiore always catered the Hudson, Kennedy & Vega law practice Christmas Gala it really couldn't be desputed.  The Kennedy's and the Hudsons were both regulars at Fiore's.  I knew them all by sight.  Apparently I had missed Alex.
+They would pick up Angelina and go to the gala together.  Dad supposedly taking their head chef to the gala in style as part of the luxury of using him for the job.  Since Fiore always catered the Hudson, Kennedy & Vega law practice Christmas Gala it really couldn't be desputed.  The Kennedy's and the Hudsons were both regulars at Fiore's.  I knew them all by sight.  Apparently I had missed Zane.
 
 My Dad pressed a kiss to my cheeck.  "Go.  We'll see you back at home."
 

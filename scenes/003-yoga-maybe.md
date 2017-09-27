@@ -1,6 +1,6 @@
 # Yoga Maybe?
 
-**Alex**
+**Zane**
 
 Monday's were never a typical day for me.  Drew and I were going to go a few rounds but I came in early to get a few weights in.  Oddly pretty boy was lifting weights.  I was suprised to see him doing a deadlift as I walked past.  But Jer got in the way and I couldn't watch his form.  I sighed and walked down the hall into the locker room.  I chose the same locker I always did and sat down to change.  Ten minutes later pretty boy walks into the aisle of lockers.  But he didn't change just grabbed a yoga mat and water before he was out again.  Fuck!
 
@@ -8,7 +8,7 @@ Drew came in and sat down next to me.  "I thought you were going to lift weights
 
 I looked up, "What?"
 
-"You said you were going to lift, you always lift, Alex.  What the fuck?"
+"You said you were going to lift, you always lift, Zane.  What the fuck?"
 
 I grabbed the watch in my locker and looked at the time.  "I'm running a bit late."
 
@@ -28,7 +28,7 @@ Jer came walking through from the other side.  "Ladies I know the class is full 
 
 There was a mass sigh as the women cleared out.  Jer patted my hand shoulder as he walked past.  "Don't you block the way too."
 
-Drew laughed as he walked past the door to the classroom.  I glanced inside and saw pretty boy doing some bendy yoga move with his ass up in the air speaking to the class like he knew what he was doing.  Drew grabbed my elbow and pulled my past the door.  "He's got your head spinning.  You need to get laid, Alex."
+Drew laughed as he walked past the door to the classroom.  I glanced inside and saw pretty boy doing some bendy yoga move with his ass up in the air speaking to the class like he knew what he was doing.  Drew grabbed my elbow and pulled my past the door.  "He's got your head spinning.  You need to get laid, Zane."
 
 I punched Drew's arm.  "That's not what my dad says."
 

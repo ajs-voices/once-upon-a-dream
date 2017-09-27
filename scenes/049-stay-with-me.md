@@ -1,30 +1,30 @@
 # Stay with Me
 
-**Alex**
+**Zane**
 
-Holy fuck!  It was my only thought as I left Nox in my living room to deal with breakfast.  That was a first for me, and not precisely what I had in mind when I had the initial thoughts of getting him naked in my living room.  He made me weak.  But I wasn't complaining.
+Holy fuck!  It was my only thought as I left Angel in my living room to deal with breakfast.  That was a first for me, and not precisely what I had in mind when I had the initial thoughts of getting him naked in my living room.  He made me weak.  But I wasn't complaining.
 
-I pulled on a clean t-shirt and boxers and dropped his clothes in the hamper without thinking about it.  I heard music start to play and then the phone rang.  I stood in the shadows of my room listening when I heard who it was.  It was initially so Nox would have privacy, but then Mr. Vega started in on him about me.  He really didn't like me.  It made me smirk.  I'd never actually given it much thought to my lovers parents before now.  It stung.  But Dorian Vega I knew was particular about things.  It was one reason why he was a partner versus other people in the firm.  Dad respected him.  And even knowing he was hiding something as big as that.
+I pulled on a clean t-shirt and boxers and dropped his clothes in the hamper without thinking about it.  I heard music start to play and then the phone rang.  I stood in the shadows of my room listening when I heard who it was.  It was initially so Angel would have privacy, but then Mr. Vega started in on him about me.  He really didn't like me.  It made me smirk.  I'd never actually given it much thought to my lovers parents before now.  It stung.  But Dorian Vega I knew was particular about things.  It was one reason why he was a partner versus other people in the firm.  Dad respected him.  And even knowing he was hiding something as big as that.
 
-I listened to Nox tell his father off and then threaten to move out.  But I heard who he was going to stay with and my heart sank.  Fuck!  Tall dark and handsome was going to have Nox when I didn't.  I growled to myself but put a smile on my lips and walked out towards Nox.  He looked defeated.  Shit! I wondered what I looked like.
+I listened to Angel tell his father off and then threaten to move out.  But I heard who he was going to stay with and my heart sank.  Fuck!  Tall dark and handsome was going to have Angel when I didn't.  I growled to myself but put a smile on my lips and walked out towards Angel.  He looked defeated.  Shit! I wondered what I looked like.
 
 "What was that about?"  I asked.  Even though I'd heard the whole thing.
 
-Nox shook his head.  "Nothing."  He plastered a fake happy smile on his face.  "Just my father calling to check up on me."  He sighed, the smile slipped from his face and he looked up from the bacon he was pulling apart.  "He doesn't want me seeing you.  Now I need to find a place to stay.  I can stay with Ant for a few days, but I really don't even want to go there.  Not after what happened the other day.  But I'll figure it out."  He smiled a real smile.  I don't know how I knew it was real this time, but I did.  "I didn't mean to ruin the morning.  I'm all your's until you get tired of me or until I have to go to work tomorrow afternoon."
+Angel shook his head.  "Nothing."  He plastered a fake happy smile on his face.  "Just my father calling to check up on me."  He sighed, the smile slipped from his face and he looked up from the bacon he was pulling apart.  "He doesn't want me seeing you.  Now I need to find a place to stay.  I can stay with Ant for a few days, but I really don't even want to go there.  Not after what happened the other day.  But I'll figure it out."  He smiled a real smile.  I don't know how I knew it was real this time, but I did.  "I didn't mean to ruin the morning.  I'm all your's until you get tired of me or until I have to go to work tomorrow afternoon."
 
 I idly wondered why he didn't want to stay with is friend but I was too tired to think about it.  I knew I was missing something but I couldn't really pass up the oppurtunity to have him stay.  He was pretty much a walking smorgasboard of sex and food.  And that smile drew me into him as he worked.  I wanted to touch him, but fuck if I was going to be drawn into that impulse.  I made myself sit down at the counter on the barstool farthest from the barely dressed man cooking in my kitchen.
 
 As he set a cup of coffee in front of me, I let my selfishness have its day and said, "You didn't ruin anything. And if you need somewhere to stay, I have plenty of space. You can even have your own room if you like."
 
-Nox faultered.  His hands stopped and his entire body froze in reaction to me words.  It was so sudden and he quickly recovered that I wasn't certain I had seen it.  "I..."  he stuttered, "I...."  He swallowed and then smiled with a nod.  I wondered what he was thinking.  "Thank you.  I won't be in your way, and I'll feed you in thanks."
+Angel faultered.  His hands stopped and his entire body froze in reaction to me words.  It was so sudden and he quickly recovered that I wasn't certain I had seen it.  "I..."  he stuttered, "I...."  He swallowed and then smiled with a nod.  I wondered what he was thinking.  "Thank you.  I won't be in your way, and I'll feed you in thanks."
 
-I raised an eyebrow and grinned.  "Exactly what I was thinking."  I pulled my lips in and took a deep breath trying to hid the other reason for wanting him here with me and wondering where he'd sleep.  There was an odd mix of anticipation and fear running through my body I could only hope Nox was too busy to notice.
+I raised an eyebrow and grinned.  "Exactly what I was thinking."  I pulled my lips in and took a deep breath trying to hid the other reason for wanting him here with me and wondering where he'd sleep.  There was an odd mix of anticipation and fear running through my body I could only hope Angel was too busy to notice.
 
-The coffee was not as good as when he used the frech press - but then it never was.  But it was still a good morning.  Though coffee before bed was hardly conducive to sleeping but what was breakfast without coffee?  I saw Nox was sipping at his own dark cup of coffee.
+The coffee was not as good as when he used the frech press - but then it never was.  But it was still a good morning.  Though coffee before bed was hardly conducive to sleeping but what was breakfast without coffee?  I saw Angel was sipping at his own dark cup of coffee.
 
-I watched in silence for a while while Nox made the pancake batter, cooked the berries in a pot with sugar and some water.  He mixed eggs in a bowl and the bacon was busy frying away in the oven and making my kitchen smell like breakfast.  My stomach rumbled.
+I watched in silence for a while while Angel made the pancake batter, cooked the berries in a pot with sugar and some water.  He mixed eggs in a bowl and the bacon was busy frying away in the oven and making my kitchen smell like breakfast.  My stomach rumbled.
 
-Nox started the pan for the pancakes and looked across at me with a grin, "So what don't you do at Zion?"
+Angel started the pan for the pancakes and looked across at me with a grin, "So what don't you do at Zion?"
 
 I smirked.  "I don't play in the band."
 
@@ -32,7 +32,7 @@ He grinned, "Maybe you should.  Then you wouldn't need anyone else to work it.  
 
 I shrugged.  "I'm a better music writer than a preformer."
 
-Nox grinned.  "I doubt that.  You have presence and charm.  A perfect rockstar.  I'll be your first groupie."
+Angel grinned.  "I doubt that.  You have presence and charm.  A perfect rockstar.  I'll be your first groupie."
 
 I couldn't help but laugh.  "You expecting some special perks with that title?"
 
@@ -40,17 +40,17 @@ He winked at me as he flipped the first pancake.  And I was surprised to see how
 
 "Not ever?"  I smirked.  "I can just see you standing outside a concert waiting for your favorite band to pass by and flashing them that award winning smile and catching the drummers attention.  Going back to his hotel and rocking his world."
 
-Nox laughed.  "I didn't have time to hit concerts when I was younger.  I've never been to anything that wasn't in a club.  And most clubs - Zion being the exception, I go to have DJs."
+Angel laughed.  "I didn't have time to hit concerts when I was younger.  I've never been to anything that wasn't in a club.  And most clubs - Zion being the exception, I go to have DJs."
 
 "Right now you sound like you've lead a sheltered life, but the entire walk home you were talking about sex clubs like they were home, why the dicotomy?"  I asked.  He was such a curiousity.
 
-"Two lives?"  He shrugged.  "My father expected so much of me that on the outside everything looked perfect.  But I rebeled under the cover of night.  My dad knows some of my exploits.  He knew it helped releive the pressures of my father's expectations. He made sure I understood the dangers.  We had a long talk about the birds and the bees and STDs.  Told me about the predators out there.  Told me he'd disown me if I became one of them too.  He told my father just what he needed to know."  Nox sighed.  "It was around then that he impressed upon the monthly therapist appointments.  And six month health check ups."
+"Two lives?"  He shrugged.  "My father expected so much of me that on the outside everything looked perfect.  But I rebeled under the cover of night.  My dad knows some of my exploits.  He knew it helped releive the pressures of my father's expectations. He made sure I understood the dangers.  We had a long talk about the birds and the bees and STDs.  Told me about the predators out there.  Told me he'd disown me if I became one of them too.  He told my father just what he needed to know."  Angel sighed.  "It was around then that he impressed upon the monthly therapist appointments.  And six month health check ups."
 
 He grinned.  "My life is nothing fancy.  I bet you have your own stories."
 
 I shrugged.  "Nothing spectacular."  I watched as he flipped another pancake.  "I didn't have a renowned chef for a father.  I didn't backpack across Europe.  I went to college, sold a few singles and bought a night club that I run.  Nothing exceptional."
 
-Nox laughed.  Breakfast was coming along and I wasn't sure how he managed all of it.  I could see his lips moving but he was paying attention to what I was saying.  "A few singles.  Who bought them?"  He asked.
+Angel laughed.  Breakfast was coming along and I wasn't sure how he managed all of it.  I could see his lips moving but he was paying attention to what I was saying.  "A few singles.  Who bought them?"  He asked.
 
 "That's my little secret."  I winked at him.
 
@@ -58,13 +58,13 @@ Nox laughed.  Breakfast was coming along and I wasn't sure how he managed all of
 
 I didn't really know how to answer his question.  "I didn't have plans at all.  Max and Drew were joking one night after we'd gone out about how they'd run a club.  I suggested we could do it.  And we'd make money doing it.  I was still getting my MBA at the time so all those fresh new business and marketing things were in my head.   It wasn't a month after I graduated that we opened up Zion.  Opening night was phenominal.  And things never slowed down."
 
-Nox pulled the icecream out of the freezer and was plating food meticuoulsly and I was about to say something but he kept talking.  "I remember Zion's opening night.  Ant and I had been home for like 2 hours when his brother called inviting us along."
+Angel pulled the icecream out of the freezer and was plating food meticuoulsly and I was about to say something but he kept talking.  "I remember Zion's opening night.  Ant and I had been home for like 2 hours when his brother called inviting us along."
 
-Nox kept talking but I heard his name again.  I didn't hear much beyond his name and I interrupted, talking over Nox.  "Where had you and Ant been?"
+Angel kept talking but I heard his name again.  I didn't hear much beyond his name and I interrupted, talking over Angel.  "Where had you and Ant been?"
 
 He looked at me, no it wasn't looking, his eyes were boring holes into my soul.  He was trying to figure out how best to respond to my question.  I could see him thinking.  There was no smile, but I saw the hope dashed in his eyes again.  He'd sensed my jealousy.
 
-Nox finished plating the pancakes, with a scope of vanilla icecream set on top with a drizzle of homemade berry syrup and shavings of the dark chocolate I'd brought, on another plate was eggs and bacon and he shoved it to me and pulled his plate close to him.  He didn't have as many pancakes or icecream.  I noticed the defined distance between us.  He looked down at his plate and pushed around the eggs before he answered.  "Ant and I had been backpacking around Europe."
+Angel finished plating the pancakes, with a scope of vanilla icecream set on top with a drizzle of homemade berry syrup and shavings of the dark chocolate I'd brought, on another plate was eggs and bacon and he shoved it to me and pulled his plate close to him.  He didn't have as many pancakes or icecream.  I noticed the defined distance between us.  He looked down at his plate and pushed around the eggs before he answered.  "Ant and I had been backpacking around Europe."
 
 Fuck!  "When did you two break things off?"  I knew I was being jealous.
 
@@ -76,15 +76,15 @@ Fuck!  "When did you two break things off?"  I knew I was being jealous.
 
 "So it's a booty call?"  I frowned.
 
-"That's all it's ever been."  Nox said setting down his fork and looking down as he crossed his arms.  "That's what he wanted the other night when I shut him down."
+"That's all it's ever been."  Angel said setting down his fork and looking down as he crossed his arms.  "That's what he wanted the other night when I shut him down."
 
 "With a safe word."  I said with venom.
 
-"So I should have let him do what he wanted when I didn't want to. Basically rape me because I'd said yes before."  Nox sighed and stood up.  "I should go."  He started for my bedroom where he knew his clothes had gone.
+"So I should have let him do what he wanted when I didn't want to. Basically rape me because I'd said yes before."  Angel sighed and stood up.  "I should go."  He started for my bedroom where he knew his clothes had gone.
 
 Fuck!  Rape?  His best friend tried to rape him and he was willing to spend a few days in his house.  There was no fucking way I was letting him go stay with that asshole again.  But I was angry still.  My heart was pounding in my chest.  My hands were sweaty.  He was a submissive.  I wasn't a dom.  Why the fuck was I even doing this.  I was never going to be what he wanted.
 
-But, I sat there for too long.  Nox had found his clothes and was pulling his coat on.  He didn't look at me as he headed for the door.  I rushed to the door and stood blocking his path.  He was frowning.  "Don't go to him."
+But, I sat there for too long.  Angel had found his clothes and was pulling his coat on.  He didn't look at me as he headed for the door.  I rushed to the door and stood blocking his path.  He was frowning.  "Don't go to him."
 
 He frowned, "I'm not."
 
@@ -94,8 +94,8 @@ He frowned, "I'm not."
 
 "So what, this is over?"
 
-"Is what over, Alex."  He sounded sad.  "We've done this twice and both times we end up in a fight.  What's that say about us?"
+"Is what over, Zane."  He sounded sad.  "We've done this twice and both times we end up in a fight.  What's that say about us?"
 
 "I told you I do and say stupid shit.  Don't go home, and don't go to him."  I sounded like I was begging.  "Don't give them what they want because you and I aren't working.  Stay here.  There's a spare room.  It's my office right now, but there is a bed.  Stay here, until you can find a place at least."
 
-Nox shook his head.  "I can't Alex."  He stepped around me and opened the door and walked out of my apartment. I collapsed on the couch numb.
+Angel shook his head.  "I can't Zane."  He stepped around me and opened the door and walked out of my apartment. I collapsed on the couch numb.

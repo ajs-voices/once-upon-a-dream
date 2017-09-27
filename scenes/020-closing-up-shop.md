@@ -1,10 +1,10 @@
 # Closing Up Shop
 
-**Nox**
+**Angel**
 
 The gala ended around 2am.  That's when the space started trying to get people to file out without making it seem like they were getting kicked out.  The band had long since gone and there was a dj playing soft mixes of modern music.  Nothing overly enrgetic, but enough of a dance beat to keep everyone happy.
 
-The booze were dwindling, we'd run out of champagne completely, and most of the the rum and vodka.  We still had plenty of wine, but we were digging the bottom of the barrel stuff.  All the good stuff was gone, but no one really cared at this point.  I had watched Alex leave with his date at midnight.  My Dad had left at 1 with Angelina.
+The booze were dwindling, we'd run out of champagne completely, and most of the the rum and vodka.  We still had plenty of wine, but we were digging the bottom of the barrel stuff.  All the good stuff was gone, but no one really cared at this point.  I had watched Zane leave with his date at midnight.  My Dad had left at 1 with Angelina.
 
 Mr. Hudson left shortly there after and the last of the partners was Mr. Kennedy and his wife.  They were helping security make everyone leave discretely while we cleaned up our things.  The space would be cleaned by the staff.  But we had to pack up everything.
 
@@ -20,7 +20,7 @@ I grinned.  "No.  But I did stay until it was completed.  My Dad trusted me to m
 
 We walked around the corner and into the coffee shop.  It was empty and the barrista looked up from her book and smiled.  "How can I help you?"
 
-"Can I get a large black coffee and whatever he wants."  I pulled my wallet out to let Alex know I was paying.
+"Can I get a large black coffee and whatever he wants."  I pulled my wallet out to let Zane know I was paying.
 
 "I'll have a small coffee with cream and 2 sugars."
 
@@ -38,7 +38,7 @@ I smiled and ducked my head.  "Well that's not the question.  Why outside?"
 
 "Honorable."
 
-"Why aren't you going home? You look tired."  Alex asked and sipped at his coffee.
+"Why aren't you going home? You look tired."  Zane asked and sipped at his coffee.
 
 "My parents need a little alone time."
 
@@ -62,13 +62,13 @@ I grinned.  "Well I'm not opposed to the kissing, but going home with you, I thi
 
 I smiled.  "We can catch a movie in the mean time.  Or catch some z's."
 
-Alex sighed, "Or you can crash at my place."
+Zane sighed, "Or you can crash at my place."
 
 I licked my lips and set my coffee down.  "Dinner then.  11pm?"
 
 "You don't want to crash at my place?"
 
-I stood up and walked around the small table and pressed my chest into his back and put my hands on the table trapping him in his seat.  I licked his earlobe and then whispered.  "I want to, that's why I shouldn't."  I kissed my way down his neck and he moved his head to the side so I could get better access.  He moaned and I almost agreed right then.  "I want to go home with you. Explore every facet of your body, but fuck Alex I want to do more than that."
+I stood up and walked around the small table and pressed my chest into his back and put my hands on the table trapping him in his seat.  I licked his earlobe and then whispered.  "I want to, that's why I shouldn't."  I kissed my way down his neck and he moved his head to the side so I could get better access.  He moaned and I almost agreed right then.  "I want to go home with you. Explore every facet of your body, but fuck Zane I want to do more than that."
 
 "So come home with me.  I promise we won't do anything other than make out on the couch.  Be a pair of fucking teenagers about to get caught.  Make me breakfast in the morning.  And tell me where you learned to dance like that."
 

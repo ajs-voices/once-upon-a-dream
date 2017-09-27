@@ -1,8 +1,8 @@
 # House of Crowley
 
-**Alex**
+**Zane**
 
-After Nox left I was at the club before opening.  I didn't need to be Drew could handle Devlin and the guys.  But I wanted to be there he was my friend and it brought back memories and old dreams.  Dreams I didn't even want anymore.  Sure the whole being rich and famous was always appealing.  But life on the road I wasn't sure I wanted anymore.  I had a safe life, I liked my life.  I didn't regret giving up my music.  I could have been right there with Devlin if I hadn't gone to college instead.  But we do what we do, I did it mostly for a girl, but also to make my dad happy.  It's funny how naive I was back then.  Everything had been about Very.  I was in love.  And I wasn't about to let Nox make that same mistake.
+After Angel left I was at the club before opening.  I didn't need to be Drew could handle Devlin and the guys.  But I wanted to be there he was my friend and it brought back memories and old dreams.  Dreams I didn't even want anymore.  Sure the whole being rich and famous was always appealing.  But life on the road I wasn't sure I wanted anymore.  I had a safe life, I liked my life.  I didn't regret giving up my music.  I could have been right there with Devlin if I hadn't gone to college instead.  But we do what we do, I did it mostly for a girl, but also to make my dad happy.  It's funny how naive I was back then.  Everything had been about Very.  I was in love.  And I wasn't about to let Angel make that same mistake.
 
 He was leaving in a few weeks.  I already knew I was going to be miserable without him.  I felt it in my bones.  Even being behind the bar reminded me that my guy was going away for 6 weeks without me.  It wasn't his fault, and I wasn't going to hold him back.  He'd done anything and everything to stay, I pushed him away.  Typical me.
 
@@ -20,9 +20,9 @@ I shoved Drew out of my way with my shoulder and he laughed.  "Are you saying I 
 
 "I know you would.  He knows it.  I mean there are prettier men out there.  Men bigger and stronger than you that he might like.  But he seems to fancy you for some reason.  I can't fathom why, you aren't that good in bed and Max says I'm the better kisser anyway."
 
-My smirk turned to smile at the familiar banter.  "You could only wish to be as good as I am."  If I were a different man I might brag to Drew about my prowess in bed, but Drew knew my strengths and my weaknesses already.  It may have been a while since we shared a bed, but it wasn't that long ago to forget.  And he had enough stories that he didn't need to know how easy Nox really was in the right situations.  The morning in the grocery store had made an appearance in my dreams on a number of nights.
+My smirk turned to smile at the familiar banter.  "You could only wish to be as good as I am."  If I were a different man I might brag to Drew about my prowess in bed, but Drew knew my strengths and my weaknesses already.  It may have been a while since we shared a bed, but it wasn't that long ago to forget.  And he had enough stories that he didn't need to know how easy Angel really was in the right situations.  The morning in the grocery store had made an appearance in my dreams on a number of nights.
 
-Drew laughed.  "I wish I could be a fly on the inside of those walls, Alex.  That smile, I've not seen it in years.  Don't worry about Nox.  I doubt he'll even see the half naked women standing in front of him in Vegas for the blinders he's got for you."
+Drew laughed.  "I wish I could be a fly on the inside of those walls, Zane.  That smile, I've not seen it in years.  Don't worry about Angel.  I doubt he'll even see the half naked women standing in front of him in Vegas for the blinders he's got for you."
 
 I rolled my eyes.  I was grateful for Drew's reassurances but it wasn't going to change things.  I was going to fucking be miserable.  Thankfully I had Zion to take up my time while my pretty boy was off playing chef in Vegas.  Devlin and the guys were setting up by the time I finished restocking the bar.  Dev had been a good friend in highschool.  I think about all the time I spent chasing after Veronica.  I missed the boat with Devlin.  It wasn't a big regret, not considering Devlin made me rich.
 
@@ -38,13 +38,13 @@ I was sure he grinned as he stepped out of the way.  He was dressed exactly how 
 
 I could feel his eyes on my back as I knelt down to restock the whiskey bottles.  It was then that I noticed we were short a bar tender.  I caught Drew's attention and  mouthed, "Where's Brandy?"
 
-He pointd out back towards the bathroom.  I had wanted to say hi at least but the bar was too busy and by the time I looked back to see my pretty boy, he'd disappeared.  House of Crowley was still playing old sets, they hadn't started any of the new ones.  I was surprised that Devlin hadn't started with the new stuff.  But then he had invited Nox to come see him play.  But I couldn't find Nox on the dance floor, or around the bar.
+He pointd out back towards the bathroom.  I had wanted to say hi at least but the bar was too busy and by the time I looked back to see my pretty boy, he'd disappeared.  House of Crowley was still playing old sets, they hadn't started any of the new ones.  I was surprised that Devlin hadn't started with the new stuff.  But then he had invited Angel to come see him play.  But I couldn't find Angel on the dance floor, or around the bar.
 
 Drew was fixing a whiskey sour next to me.  "He's behind the bar."
 
 "What?"  I said without looking up.
 
-"You are looking for Nox?"
+"You are looking for Angel?"
 
 I looked at him and his shit eating grin.  He nodded down towards the other end of the bar.  "Brandy's throwing up in the bathroom.  He offered."  I looked down where Drew had nodded and there he was.  Still in his khaki's but sporting one of the black Zion shirts.  Drew leaned closer to speak over the music.  "He's pretty good."
 
@@ -56,6 +56,6 @@ Then the lights dimmed a little as the spotlight took to the band and Devlin spo
 
 The line cued the music and the first song started to play.  I recognized it immediately and  was grateful all eyes were on the band and not trying to get drinks.  I hadn't been ready to hear the song played by Devlin.  I had never meant for Devlin to even have the song, but it had been on the reel when he came into the studio.  He asked and I had a problem saying no to Devlin.  It was validation of my work.  If Devlin liked it I felt it could make it one day.  But he had liked it so much he had bought it without any finishing touches.  Even though I told him repeatedly it wasn't done.
 
-The audience was rapt with attention but I turned to look at Nox and he was staring at me.  I crooked a finger at him and he walked across the floor to me and stopped before me.  He wasn't smiling, he wasn't giving me anything, he was just looking at me.  Devlin sang the words, "no more running away."  The band played but in that moment there was nothing but Nox.  His chocolate eyes staring at me through long lashes as he listened to the song he knew every word to.  We'd lived it.  The song was winding down and Nox took a handful of my Zion shirt and pulled me close and pressed his lips to mine in a soft tender kiss that soon was hungry with lust and desire.  Zack hip checked us and tapped the bar, "Coming right up."  The next song had started but so had the drink requests.
+The audience was rapt with attention but I turned to look at Angel and he was staring at me.  I crooked a finger at him and he walked across the floor to me and stopped before me.  He wasn't smiling, he wasn't giving me anything, he was just looking at me.  Devlin sang the words, "no more running away."  The band played but in that moment there was nothing but Angel.  His chocolate eyes staring at me through long lashes as he listened to the song he knew every word to.  We'd lived it.  The song was winding down and Angel took a handful of my Zion shirt and pulled me close and pressed his lips to mine in a soft tender kiss that soon was hungry with lust and desire.  Zack hip checked us and tapped the bar, "Coming right up."  The next song had started but so had the drink requests.
 
-Nox grinned at me.  And picked up the first drink order and started with a little more flash and flair then he had been earlier.  Mine, was my only thought even as he flirted with the girl in front of him who's drink he was making.
+Angel grinned at me.  And picked up the first drink order and started with a little more flash and flair then he had been earlier.  Mine, was my only thought even as he flirted with the girl in front of him who's drink he was making.

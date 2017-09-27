@@ -1,6 +1,6 @@
 # Late Night
 
-**Alex**
+**Zane**
 
 Halfway through present time where the family watch each other open up Grams's gifts to us and my little cousin, Sam, was Santa - red had and fluffy white ball and everything I got a text.  I never looked at the message while we were doing the family thing.  Whoever it was knew I was busy.  Either that or it wasn't overly important as only one message came through.  Probably just one of those stupid alerts I signed up for and never bother to unsubscribe.
 
@@ -22,11 +22,11 @@ He laughed abruptly and sighed.  "She asked me if you were even interested in gi
 
 "She said that now?" I asked.
 
-He nodded.  "Yes son.  I told her you were interested in women, that men was only a phase, just something you played with but weren't serious with.  But Zack let slip who you'd been, who left all those..."  He gestured at me and stopped speaking for a moment and starred out over Queens.  "It's your life Alex.  I can't live it for you.  Your mother can't live it for you.  I would hope I'm progressive enough to see that an alternate lifestyle would make my son happy.  And grandkids can still happen."  My father looked at me then, his brown eyes darker than usual in the shadows of the balcony.  "Grandkids are your mother's dream, son.  Please don't give up on that one."
+He nodded.  "Yes son.  I told her you were interested in women, that men was only a phase, just something you played with but weren't serious with.  But Zack let slip who you'd been, who left all those..."  He gestured at me and stopped speaking for a moment and starred out over Queens.  "It's your life Zane.  I can't live it for you.  Your mother can't live it for you.  I would hope I'm progressive enough to see that an alternate lifestyle would make my son happy.  And grandkids can still happen."  My father looked at me then, his brown eyes darker than usual in the shadows of the balcony.  "Grandkids are your mother's dream, son.  Please don't give up on that one."
 
 I laughed.  "I won't Dad.  I want kids.  Not now mind you.  But I want them.  There is still plenty of time."
 
-"This man?" My father asked.  "Is it serious, Alex?"
+"This man?" My father asked.  "Is it serious, Zane?"
 
 I shrugged.  "I don't know."
 
@@ -40,7 +40,7 @@ I shrugged.  "I don't know."
 
 "Last I'd heard he was backpacking across Europe on whatever money he could make."
 
-Nox had mentioned that, but that wasn't really my concern at the moment.  "You knew Dorian liked men?  Had a kid?"
+Angel had mentioned that, but that wasn't really my concern at the moment.  "You knew Dorian liked men?  Had a kid?"
 
 "It's my job to know things.  Morris knows too.  We let Dorian's charade go on it's better for the clients.  And they don't see the things we see.  I should have known it was Chef Marco.  Why Dorian introduced us all to Fiore."
 
@@ -52,7 +52,7 @@ I rolled my eyes.  "The bartender was a student of Angelina's and Dorian's son."
 
 "That was Dorian's son?"
 
-I nodded.  "Yes, sir.  His name is Nox.  And he's studying to be a chef like his dad.  I don't know why he thinks he has to study to be a chef, he's a good chef already."
+I nodded.  "Yes, sir.  His name is Angel.  And he's studying to be a chef like his dad.  I don't know why he thinks he has to study to be a chef, he's a good chef already."
 
 "You've dined with him before?"
 
@@ -62,19 +62,19 @@ My father shook his head and took a puff on his cigar.  He turned to look at me 
 
 "Alright Dad, I got the picture."  I pulled out my phone and finaly looked at the text message
 
-Nox: _Just wishing you a Merry Christmas Eve from the kitchen of Fiore.  Remember Santa is always watching._
+Angel: _Just wishing you a Merry Christmas Eve from the kitchen of Fiore.  Remember Santa is always watching._
 
 _You are working tonight?_
 
 I tucked my phone back in after sending the text.  I didn't expect an answer right away if he was working.
 
-My father asked, "What is Nox up to?"  The look on my face must have been surprise because my dad chuckled.  "You lit up at the text.  It had to be him.  Max and Drew don't make you that happy."
+My father asked, "What is Angel up to?"  The look on my face must have been surprise because my dad chuckled.  "You lit up at the text.  It had to be him.  Max and Drew don't make you that happy."
 
 "Working Fiore I guess."  I said.
 
 A response came back and I read it quickly.
 
-Nox: _Yeah, so Baboo can be with the family._
+Angel: _Yeah, so Baboo can be with the family._
 
 I added to my previous answer, "He's covering for Chef Marco so he can be with family tonight."
 

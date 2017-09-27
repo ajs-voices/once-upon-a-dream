@@ -1,10 +1,10 @@
 # Alone Time
 
-**Alex**
+**Zane**
 
 The night was still early.  Drew had poured me a second double after I'd greeted everyone who came in to join us.  I knew every face.  I didn't remember their all names but Drew, Max and I had interviewed everyone here who worked for us.  Most of them had been working with us for years.  We had one or two new servers.  They came and went with the seasons.  The bartenders and security not so much.
 
-The music was on a low hum and got louder the closer you got to the dance floor.  But with fewer people here we didn't have to blast the music.  We could all talk at a reasonable level and be heard.  Drew and Mandy had taken to the dancefloor first and others followed.  Max danced with a few of the newer faces.  I was dragged out by Mandy at one point.  She left and I stayed to dance with Mike who was a few sheets to the wind.  He was one of those 'I really only like men when I'm drunk' types.  Exactly the type of guy who'd go after Nox.
+The music was on a low hum and got louder the closer you got to the dance floor.  But with fewer people here we didn't have to blast the music.  We could all talk at a reasonable level and be heard.  Drew and Mandy had taken to the dancefloor first and others followed.  Max danced with a few of the newer faces.  I was dragged out by Mandy at one point.  She left and I stayed to dance with Mike who was a few sheets to the wind.  He was one of those 'I really only like men when I'm drunk' types.  Exactly the type of guy who'd go after Angel.
 
 I had been doing great until that moment.  My mind was well on the people here, until Mike had pulled me close to dance.  I had stayed until I felt my phone vibrate in my back pocket.  I couldn't hear it over the noise.  I leaned in to whisper to the big black man, "I got a call."
 
@@ -32,23 +32,23 @@ His idea of just must be off, or he was busy.  What was he doing?  It had been a
 
 I groaned.  "Alright.  Yeah.  I don't want to think about that.  But I'll admit your parents are at least hot."
 
-Nox laughed.  "I would disagree on principle alone.  I don't want to go there.  Can we not talk about my fathers fucking please."
+Angel laughed.  "I would disagree on principle alone.  I don't want to go there.  Can we not talk about my fathers fucking please."
 
 "We could talk about us fucking."
 
-Nox must have moved the phone to his chest and groaned, because it was muffled.  When he came back his voice was heavy with desire.  "What did you have in mind?"
+Angel must have moved the phone to his chest and groaned, because it was muffled.  When he came back his voice was heavy with desire.  "What did you have in mind?"
 
 Shit he called my bluff.  He chuckled in the other end of the phone.  "I talked to my dad and he said I could take New Years eve and day off without a problem."  He changed the subject and still I was harder than before because he could spend those two days with me.  "What did you want to do?"  He asked almost as if he were reading my mind.
 
 "New Years Eve I'll be at Zion for the whole night.  I want you to be here with me.  We can hang out New Years eve afternoon and then the next morning you can make me breakfast.  I want pancakes and icecream."
 
-Max poked his head around the corner, "Hey Alex, whatcha doing?  Come on, we are having a toast."
+Max poked his head around the corner, "Hey Zane, whatcha doing?  Come on, we are having a toast."
 
 I sighed.  "I have to go.  I'll call you later."
 
-"Alright.  Night Alex."
+"Alright.  Night Zane."
 
-"Night Nox."  I hung up and Max gave me that look.  "What?" I asked.
+"Night Angel."  I hung up and Max gave me that look.  "What?" I asked.
 
 He shook his head.  "Nothing.  You should invite him here."
 

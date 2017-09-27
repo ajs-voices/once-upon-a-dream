@@ -1,6 +1,6 @@
 # Picking Up Jennifer
 
-**Alex**
+**Zane**
 
 Tonight I had a town car rental to pick up Jennifer in.  I didn't have to drive so we could chat some.  The man driving us spoke Brooklyn English "Hey Howz you doin?"
 
@@ -8,7 +8,7 @@ Tonight I had a town car rental to pick up Jennifer in.  I didn't have to drive 
 
 He laughed.  I gave him Jennifer's address and he waited outside for us with the car idling so it would stay warm.
 
-I didn't bother stopping at the doorman I just waved at him and he waved back.  I knocked on the door and Jennifer answered almost immediately putting on her earring.  "Alex."  She glanced at the clock.  "I'm running late.  You mind waiting?"
+I didn't bother stopping at the doorman I just waved at him and he waved back.  I knocked on the door and Jennifer answered almost immediately putting on her earring.  "Zane."  She glanced at the clock.  "I'm running late.  You mind waiting?"
 
 "Not at all."  I said in my best patient voice.  Already annoyed at my father now I had to wait for the girl I probably was going to call it quits with afterwards.  She went off down the hall towards what I assumed was her bedroom and I looked around.  I stepped into the living room and was startled to find a half naked man lying on the couch watching a movie.
 

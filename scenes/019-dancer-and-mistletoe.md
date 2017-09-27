@@ -1,6 +1,6 @@
 # Dancer and Mistletoe
 
-**Alex**
+**Zane**
 
 Jennifer and I arrived late.  Even after my father.  I was proud of that.  We had a glass of champagne while we mingled.  We spoke with other partners and the mayor of the city with a span of thirty minutes before Jennifer was pulling at a second glass of champagne.  I drank the one glass of bubbly and then a red wine that was floating around.  I wanted something a little stronger but the bar tender looked like pretty boy sans the hair and makeup.  I didn't get a chance to figure it out before Jennifer was pulling me on the dance floor.  "Let's dance."  She giggled.
 
@@ -42,10 +42,10 @@ I walked her over to the ladies room and stood just inside the door way and wait
 
 I got a text on my phone and I decided to look at it to see who was messaging me while I was at the gala.  It could be my mother requesting my presence.  I smirked.
 
-Nox: _Look up_
+Angel: _Look up_
 
 I looked up and saw a bundle of misltetoe hanging high above my head.  My phone beeped again and I looked down
 
-Nox: _xxx_
+Angel: _xxx_
 
 He wasn't looking my way when I looked in his.  But I could see that smile it wasn't faked.  Jennifer came out of the bathroom looking a little green.  "I think I should take you home."  She nodded and I called one of the town cars over and we went back to her place.

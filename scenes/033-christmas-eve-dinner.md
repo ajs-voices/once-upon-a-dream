@@ -1,10 +1,10 @@
 # Christmas Eve Dinner
 
-**Alex**
+**Zane**
 
 I had woken up alone with the sun streaming in my window. My apartment was quiet and it felt empty compared to any other day.  It was Christmas Eve and the most I had done to decorate my place was a fake tree Mandy had brought over my first Christmas in the new apartment.  It looked like Charlie Brown's no nothing tree except it didn't turn bright and bushy with love.  I flipped on the little switch.  "There ya go Charlie.  Merry Christmas!"
 
-There was still fresh grounds from the previous morning and my first cup of coffee was glorious.  Not as good as what Nox had made in the french press but this was still better than my usual brand.  What I couldn't give to feel him next to me right now.
+There was still fresh grounds from the previous morning and my first cup of coffee was glorious.  Not as good as what Angel had made in the french press but this was still better than my usual brand.  What I couldn't give to feel him next to me right now.
 
 Where the fuck did that come from?  The clock on the microwave ticked forward 2:30.  Shit, I'd really slept in.  But then again I got in at 5am.  Max and I had gone to grab breakfast after we locked everything up.  Drew and Mandy had been gone since 1am.  They were zombies by the time it got that late.  So much for having kids I thought.
 
@@ -22,7 +22,7 @@ Grams pushed me out of the kitchen.  "Shoo.  No place for the boys."  I wanted t
 
 I sat down on the couch next to Zack.  He was watching a Christmas movie - I couldn't place it.  Lots of snow and red and green.  I only mildly paid attention but Zack interrupted my boredom.  "So, Mom tells me you are seeing a partner at your dad's firm?"
 
-"My love life is the topic of conversation?"  I asked.  I almost wanted to get up and walk away. No way I was going to get out of this one without telling my family about Nox.   They could smell a lie.
+"My love life is the topic of conversation?"  I asked.  I almost wanted to get up and walk away. No way I was going to get out of this one without telling my family about Angel.   They could smell a lie.
 
 Zack laughed.  "No, man.  Mom saw you with her at the gala.  Commented I should be settling down with a girl of my own."
 
@@ -50,11 +50,11 @@ I shook my head.  "No and I'd like to keep it that way."
 
 Zack laughed.  "Let them assume it's from the girl they approve of.  Got it."
 
-I nodded.  Yeah, the girl they approve of.  They definitely don't approve of Nox.
+I nodded.  Yeah, the girl they approve of.  They definitely don't approve of Angel.
 
 "She hot?"
 
-I nodded.  I didn't want to say anything or smirk or give away the fact that she wasn't a she.  It wasn't that my family didn't know, they just liked to forget and I'd be more than happy to let them.  Except what if Nox wasn't just a fling?
+I nodded.  I didn't want to say anything or smirk or give away the fact that she wasn't a she.  It wasn't that my family didn't know, they just liked to forget and I'd be more than happy to let them.  Except what if Angel wasn't just a fling?
 
 I sighed.  "He's hot."  I whispered so only Zack would hear me over the tv.
 
@@ -64,9 +64,9 @@ And just like that my mother and father walked in.  My mother asked, "What don't
 
 Zack laughed, "He doesn't want you to know about the hickey's on his neck."
 
-I groaned.  Zack could be so childhish sometimes.  But Gram stuck her head out into the living room.  "Dinner's ready.  Wash up Alex."
+I groaned.  Zack could be so childhish sometimes.  But Gram stuck her head out into the living room.  "Dinner's ready.  Wash up Zane."
 
 I stood up.  "Yes, ma'am."
 
-My father looked at me with a curious eye and I grinned at him.  There was little to say there were marks on my neck from my trist with Nox two days ago.  If only my father knew the truth.
+My father looked at me with a curious eye and I grinned at him.  There was little to say there were marks on my neck from my trist with Angel two days ago.  If only my father knew the truth.
 

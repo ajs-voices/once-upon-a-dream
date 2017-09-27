@@ -1,6 +1,6 @@
 # Lemon
 
-**Alex**
+**Zane**
 
 Drew laughed, "Leila had them rolling over like little puppies drooling over their dinner."
 
@@ -14,7 +14,7 @@ There was fried cheese, two sauces, arugala and tomatos.  It looked great.  Drew
 
 She left us to our salad.  I didn't normally do the salad thing but I was more than impressed with the choice. The peppery lettuce, tomatoes and pesto sauces.  Drew was drooling over the cheese.  And the cruch was great and I'd never had scamorza before but it was good.  Max laughed at Drew.  "Dude, it's not sex."
 
-Drew sighed, "You have a baby and you tell me it's not better than sex.  Closest thing I got to that in the past month is watching Alex drool over a pretty boy."  Drew smirked, "He got a good look today."
+Drew sighed, "You have a baby and you tell me it's not better than sex.  Closest thing I got to that in the past month is watching Zane drool over a pretty boy."  Drew smirked, "He got a good look today."
 
 I rolled my eyes.  "You looked too."
 

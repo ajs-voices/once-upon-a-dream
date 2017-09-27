@@ -1,6 +1,6 @@
 # Date
 
-**Alex**
+**Zane**
 
 I had met Jennifer once before I asked her to the gala.  It was at the last Christmas gala.  My father had brought us together in the hopes that we'd actually hit it off.  She was goregous then and goregous now, but she was a laywer in my father's firm and I didn't want that kind of pressure.  She smiled as she closed the door behind her, "Cab's running?"
 
@@ -20,13 +20,13 @@ The small talk was the usual in the cab, we included the cabbie.  Well Jennifer 
 
 Outside Fiore's I held the door for her and we dropped off our thick coats at the coat check.  I took both our numbers.  I smiled at Suzie, "Reservation for 2, Kennedy."
 
-"Your table is ready, Mr. Kennedy, if you'll follow me."  I followed Suzie fighting back the urge to say Mr. Kennedy is my father, Alex.  I thought I did a good job of it.  My father should be proud.
+"Your table is ready, Mr. Kennedy, if you'll follow me."  I followed Suzie fighting back the urge to say Mr. Kennedy is my father, Zane.  I thought I did a good job of it.  My father should be proud.
 
 Nadia was our server again.  She grinned at me and gave Jennifer a sweet smile.  Though I thought it slipped for a moment.  "I'm Nadia.  I'll be your server today.  Shall I bring your usual wine?"
 
 I nodded.  "Please.  Is Chef Marco working tonight?"
 
-Nadia nodded.  "Yes.  He's here."  One thing I didn't have to worry about.  Nadia grinned at me, "Our other chef is on tonight, but sadly he can't make your order."  Fuck!  Nadia knew something and was telling me Nox was here.  Fuck I said his name, now things were getting personal.  I nodded.  "That's alright, we come for Chef Marco's cooking."
+Nadia nodded.  "Yes.  He's here."  One thing I didn't have to worry about.  Nadia grinned at me, "Our other chef is on tonight, but sadly he can't make your order."  Fuck!  Nadia knew something and was telling me Angel was here.  Fuck I said his name, now things were getting personal.  I nodded.  "That's alright, we come for Chef Marco's cooking."
 
 Nadia giggled.  "If you say so, Mr. Kennedy.  I'll bring the wine and some fresh bread is there anything else you'd like me to bring you before you order?"
 
@@ -78,7 +78,7 @@ I could do with seeing his ass again.  I sighed, "If it would make you happy."
 
 "He was cute.  I wonder if he works our table."  But I doubted he was going to work our table while I was here.  I think being here on a date was a bit much after Monday.  I should have told my father no, taken Jennifer someplace else.
 
-Nadia brought our wine and Jennifer's salad, and we both ordered the chef's special.  Marco dazzled of course.  And I'd been right we hadn't seen Nox since that impromptu question.  I didn't have time to think about Nox as Jennifer demanded all of my attention.  I learned she went to Yale and was top of her class.  There was no wonder that my father had recruited her to the firm.  I wondered if the three men were bringing in young fresh new blood to bring on as a partner.
+Nadia brought our wine and Jennifer's salad, and we both ordered the chef's special.  Marco dazzled of course.  And I'd been right we hadn't seen Angel since that impromptu question.  I didn't have time to think about Angel as Jennifer demanded all of my attention.  I learned she went to Yale and was top of her class.  There was no wonder that my father had recruited her to the firm.  I wondered if the three men were bringing in young fresh new blood to bring on as a partner.
 
 I told her dad had been disappointed when I didn't want to join the firm.  I had no interest in law.  She asked me what I did have interest in and I lied.  Told her my business kept me busy and was my first love.  It wasn't really a lie, but I didn't mention my music, the reason I have Zion.
 
@@ -86,7 +86,7 @@ We had dessert.  It was delicious apple tart.  We walked for a few blocks before
 
 I walked to the subway and once I got on I pulled out my phone to see what messages I had missed.  There was a simple text
 
-Nox: _My version of applie pie.  Hope you and your friend enjoyed it._
+Angel: _My version of applie pie.  Hope you and your friend enjoyed it._
 
 Shit!  I didn't know if he was mad or if he was being nice.
 
@@ -94,8 +94,8 @@ _Why did you make me apple pie?_
 
 I put my phone back in my pocket and closed my eyes but it buzzed again.  I hesitated. I didn't want to know the answer.  But I couldn't help myself.
 
-Nox: _I thought I'd make you something better than what we had.  Nothing more._
+Angel: _I thought I'd make you something better than what we had.  Nothing more._
 
 _It was delicious.  Thank you. I'll see you around?_
 
-Nox: _:) always_
+Angel: _:) always_
