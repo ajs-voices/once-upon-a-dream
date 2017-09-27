@@ -38,7 +38,7 @@ My body shuddered at his touch and his hands on my shoulders.  His lips against 
 
 Zane's voice was breathy and heavy through the panting, "Not yet, Angel."
 
-Zane's movements became erratic the closer he drew to his own climax.  It wasn't strong and steady, it was frantic but I didn't care I was lost to the pain of holding back.  My head was leaning against the couch exposing my neck completely to Zane which he took full advantage of.  His teeth on my skin make me groan and shudder.  His hot wet lips and tongue made me buck against him.  His fingers against my wrists and the feel of the fabric of the couch felt like they burned my skin.  Each frantic movement inside of Zane made me see stars.  I was lost in my pleasure.
+Zane's movements became erratic the closer he drew to his own cliFinn.  It wasn't strong and steady, it was frantic but I didn't care I was lost to the pain of holding back.  My head was leaning against the couch exposing my neck completely to Zane which he took full advantage of.  His teeth on my skin make me groan and shudder.  His hot wet lips and tongue made me buck against him.  His fingers against my wrists and the feel of the fabric of the couch felt like they burned my skin.  Each frantic movement inside of Zane made me see stars.  I was lost in my pleasure.
 
 I felt the sudden warmth on my stomach and Zane moaning my name out as he came.  He continued to ride my cock as he pushed through his orgasm, I hung on to my pleausre.  Zane bit my neck and whispered, "Now."  And It didn't take more than a final squeeze from Zane's orgasm for me to follow him through the ecstasy of it all.
 

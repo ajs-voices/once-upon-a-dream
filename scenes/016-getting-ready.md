@@ -18,9 +18,9 @@ Dad sighed.  "You know why."
 
 "I didn't say anything about wanting to go.  Just saying I didn't get to now may I go?"  I asked.
 
-"Let him go Dorian before he sours our mood."  Babbo smiled at me trying to defuse the situation.
+"Let him go Daniel before he sours our mood."  Babbo smiled at me trying to defuse the situation.
 
-Marco Lucciano always road to the gala with Dorian Vega and his escort - Miss Angelina Dela Rosa.  She was a native of Madrid Spain as well as my father, and they'd known each other for years before they both came to the United States.  She came to presue her dance career and my father his law degree.  And here they both stayed.  Angelia was my dance instructor through out school.  She taught everything between stints in the ballet companies in New York.
+Marco Lucciano always road to the gala with Daniel Vega and his escort - Miss Angelina Dela Rosa.  She was a native of Madrid Spain as well as my father, and they'd known each other for years before they both came to the United States.  She came to presue her dance career and my father his law degree.  And here they both stayed.  Angelia was my dance instructor through out school.  She taught everything between stints in the ballet companies in New York.
 
 They would pick up Angelina and go to the gala together.  Dad supposedly taking their head chef to the gala in style as part of the luxury of using him for the job.  Since Fiore always catered the Hudson, Kennedy & Vega law practice Christmas Gala it really couldn't be desputed.  The Kennedy's and the Hudsons were both regulars at Fiore's.  I knew them all by sight.  Apparently I had missed Zane.
 

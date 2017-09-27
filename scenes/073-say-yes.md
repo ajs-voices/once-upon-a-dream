@@ -12,7 +12,7 @@ I hadn't really paid much attention when I came in to our vicinity.  I figured t
 
 He laughed, "After the first week it kept me awake so I just never opened them.  I wasn't here anyway to enjoy the view."
 
-I hadn't planned it this way.  But it worked for me.  I'd been carrying the fucking thing for weeks even though Angel wasn't even in town.  The only preson who knew was Mandy which meant Drew knew.  And if Drew knew Max knew and they all kept quiet about it.  Never once saying anything.  I think they were all afraid I would chicken out.  But I don't chicken out...
+I hadn't planned it this way.  But it worked for me.  I'd been carrying the fucking thing for weeks even though Angel wasn't even in town.  The only preson who knew was Mandy which meant Drew knew.  And if Drew knew Finn knew and they all kept quiet about it.  Never once saying anything.  I think they were all afraid I would chicken out.  But I don't chicken out...
 
 I pulled my hand from his and reached into my pocket pulling him tighter against me with my other hand.
 

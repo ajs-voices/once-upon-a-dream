@@ -18,7 +18,7 @@ Drew laughed, "You know he's a regular here right?  I've seen him here every Fri
 
 I shoved Drew out of my way with my shoulder and he laughed.  "Are you saying I wouldn't give him anything he asks for?"  I knew that wasn't the point of the whole thing, but I mocked my offense none-the-less.
 
-"I know you would.  He knows it.  I mean there are prettier men out there.  Men bigger and stronger than you that he might like.  But he seems to fancy you for some reason.  I can't fathom why, you aren't that good in bed and Max says I'm the better kisser anyway."
+"I know you would.  He knows it.  I mean there are prettier men out there.  Men bigger and stronger than you that he might like.  But he seems to fancy you for some reason.  I can't fathom why, you aren't that good in bed and Finn says I'm the better kisser anyway."
 
 My smirk turned to smile at the familiar banter.  "You could only wish to be as good as I am."  If I were a different man I might brag to Drew about my prowess in bed, but Drew knew my strengths and my weaknesses already.  It may have been a while since we shared a bed, but it wasn't that long ago to forget.  And he had enough stories that he didn't need to know how easy Angel really was in the right situations.  The morning in the grocery store had made an appearance in my dreams on a number of nights.
 

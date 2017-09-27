@@ -2,13 +2,13 @@
 
 **Zane**
 
-My phone sat quietly in my pocket all day.  It was burning a hole in it.  I wanted to keep checking it for missed calls or texts, but I knew it was quiet.  I hadn't heard it all day.  So now it sat in my desk drawer with my keys while I did my thing on New Year's eve.  It was one of our biggest parties.  We had three live bands scheduled to play tonight.  We were well stocked.  I would be useful wherever Max or Drew needed me.  It was all hands on deck tonight.
+My phone sat quietly in my pocket all day.  It was burning a hole in it.  I wanted to keep checking it for missed calls or texts, but I knew it was quiet.  I hadn't heard it all day.  So now it sat in my desk drawer with my keys while I did my thing on New Year's eve.  It was one of our biggest parties.  We had three live bands scheduled to play tonight.  We were well stocked.  I would be useful wherever Finn or Drew needed me.  It was all hands on deck tonight.
 
 When we opened I was working the bar.  It was like watching a flood break a dam when Mike opened the door clicking furiously to keep up with the count of people inside.  The music had felt loud until the drone of people started to fill the club's atmosphere.  Zion always felt wrong without people in it.  The loud music became home.  The black lights and the strobes going off around others.
 
-Max buzzed me on the walkie and I finished my last order before stepping aside and pulling another into my place so I could handle whatever it was Max needed.
+Finn buzzed me on the walkie and I finished my last order before stepping aside and pulling another into my place so I could handle whatever it was Finn needed.
 
-Inside the security booth it was quiet compared to the club floor.  He only nodded to the screen outside.  In line and talking with Mike stood pretty boy.  He stood in the corner of the velvet lines used to keep peopl from the door unless they were expressly let in.  Mike waved another couple ahead of Angel as they continued their conversation.  Max interrupted my staring with a whisper, "He's been keeping Mike company since opening."
+Inside the security booth it was quiet compared to the club floor.  He only nodded to the screen outside.  In line and talking with Mike stood pretty boy.  He stood in the corner of the velvet lines used to keep peopl from the door unless they were expressly let in.  Mike waved another couple ahead of Angel as they continued their conversation.  Finn interrupted my staring with a whisper, "He's been keeping Mike company since opening."
 
 Fuck!
 

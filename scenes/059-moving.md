@@ -6,9 +6,9 @@ Fuck I missed him.  He fell asleep in my arms.  I watched him for a long time be
 
 He groaned again and removed his arm from my waist and I could slither out from underneath him.  I tossed a pillow  and it landed on his head but he quickly snatched and put it under his head while clutching it in his arms.  I could see the goosebumps forming on his skin in the dim light of the City shining through the windows.  I covered him up and glanced at the time on my alarm clock and sighed.  I was awake now.  Pretty boy was sleeping.  I watched the rise and fall of his chest while I walked out into the living room to fetch our phones.  Last thing we needed was a freak out about where it was when he woke up.
 
-I also picked up the clothes on the floor and tossed them in the hamper turning out all the lights on my way back into the bedroom.  I sat on the end of the bed and called Max, his shift was just ending at Zion. As the phone rang I curled up at Angel's back his arms still around the pillow he moved to press his back against my side.  But I knew he was still sleeping, just gravitating towards me in his sleep.  If that didn't say this was right, I didn't know what was.
+I also picked up the clothes on the floor and tossed them in the hamper turning out all the lights on my way back into the bedroom.  I sat on the end of the bed and called Finn, his shift was just ending at Zion. As the phone rang I curled up at Angel's back his arms still around the pillow he moved to press his back against my side.  But I knew he was still sleeping, just gravitating towards me in his sleep.  If that didn't say this was right, I didn't know what was.
 
-Max picked up, "Hey, Zane, how's meet the parents go?"
+Finn picked up, "Hey, Zane, how's meet the parents go?"
 
 "Good."  I said softly.
 
@@ -16,7 +16,7 @@ Max picked up, "Hey, Zane, how's meet the parents go?"
 
 "He's asleep next to me."
 
-Max chuckled, "Why didn't you just leave the room?"
+Finn chuckled, "Why didn't you just leave the room?"
 
 "You don't want to hear my answer."
 
@@ -24,19 +24,19 @@ Max chuckled, "Why didn't you just leave the room?"
 
 "He moved in.  Which is why I'm calling actually.  I want to move Saturday's here."  I said quietly.
 
-"Alright.  You'll have to call Drew in the morning."  Max said with a yawn.
+"Alright.  You'll have to call Drew in the morning."  Finn said with a yawn.
 
 "And afterwards, can you big burly men help us get his things in storage.  I'd rather not go play basketball with Ant and his brother.  Suggest it tomorrow, make it seem like it's your idea."
 
-Max laughed.  "You lying to him?"
+Finn laughed.  "You lying to him?"
 
 "No. I'll fess up but it's easier if you offer.  I seem less like the jealous boyfriend."
 
 "You are the jealous boyfriend."
 
-Angel rolled over when I groaned, draping his arm over my stomach and resting his head on my shoulder.  He mumbled, "Tell Max hi. And you have to go."
+Angel rolled over when I groaned, draping his arm over my stomach and resting his head on my shoulder.  He mumbled, "Tell Finn hi. And you have to go."
 
-I chuckled.  "Hey Max, Angel says hi, and now I have to go.  We'll see you here same time as usual."
+I chuckled.  "Hey Finn, Angel says hi, and now I have to go.  We'll see you here same time as usual."
 
 We said our good-byes and I snuggled down with Angel pressed against me, "How much of that did you hear."
 
@@ -98,12 +98,12 @@ Mandy asked, "So what prompted this move?"
 
 "Zane asked.  I said yes."  Angel said as he turned around and went back to work.  But Drew and Mandy were already pulling small plates from the pile to get food Angel had set in front of us.
 
-Max arrived and as he walked in he blurted out, "Hey, Angel, Drew and I can help move your things fater this if you want."
+Finn arrived and as he walked in he blurted out, "Hey, Angel, Drew and I can help move your things fater this if you want."
 
 Angel chuckled and nodded.  "Alright.  I didn't really want to go play basketball anyway."
 
 And Angel didn't even mention that he already knew the plan.  We went through the guinea pig experiments and we were all stuffed.  "I have to go to work in an hour."  He looked at me with a frown.
 
-Max shurgged.  "Give Zane the key we'll get everything taken care of.  Where you storing your furinture?"
+Finn shurgged.  "Give Zane the key we'll get everything taken care of.  Where you storing your furinture?"
 
 Angel texted me the address.  "Zane has the address and the unit number."  He handed me two keys and we would do it when we could move again.  I was slightly disappointed Angel and I didn't get much alone time before he went to work but before he left I gave him my key, I'd get another one from the front desk.  It was where I kept my spares anyway.  I think everyone in the building did.  Just made sense.

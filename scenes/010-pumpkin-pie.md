@@ -86,7 +86,7 @@ Zane laughed.  "Take it how you want.  Coffee at least passable?"
 
 I pulled out my wallet and left a few bucks on the table.  "You need to let me cook for you sometime.  Distraction free.  Tonight's wasn't my best work."  Then I slid out of my booth bench and stood up.
 
-"That wasn't your best work?  Max would have licked his plate clean if he wasn't sitting in a posh restaurant.  And Drew took all the leftovers.  Man eats like a bird.  I think he is just taking it home for his wife since she can't come to the meetings anymore."
+"That wasn't your best work?  Finn would have licked his plate clean if he wasn't sitting in a posh restaurant.  And Drew took all the leftovers.  Man eats like a bird.  I think he is just taking it home for his wife since she can't come to the meetings anymore."
 
 "You have my number now." I said with a smile and leaned down and whispered in Zane's ear.  "I would very much like to see you again Zane Kennedy."  I brushed my lips against his cheek and took a deep breath of his skin.
 

@@ -38,7 +38,7 @@ Angelina asked, "Shane?"
 
 My Dad stood up straighter and pulled out his checkbook.  Which shocked me and Angelina.  I didn't see the amount he wrote on the check as he folded it and put in my tip jar.  "That is a mighty fine jesture."
 
-My Dad started to pull Angelina along so they didn't linger in the comfort zone of home too long, but Angelina asked, "Dorian, darling why don't we dance?"
+My Dad started to pull Angelina along so they didn't linger in the comfort zone of home too long, but Angelina asked, "Daniel, darling why don't we dance?"
 
 He gave her that sideways glance that said he didn't dance and you know that look.  "I'd rather not."  She looked at me with a wide grin.  "Will you let me dance with someone I know will make it worth my time."  Her eyes were wide and pleading but she was pouting and I knew my father would relent.
 

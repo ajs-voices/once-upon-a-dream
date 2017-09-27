@@ -6,7 +6,7 @@ Nothing about our date had gone according to plan.  Our life had become a series
 
 We'd talked a great deal about it because of my mother.  Like we talked a great deal about how to get his father on board.  I was finally understanding the whole my dad, my father, Babbo, Dad thing he had going on.  We'd had dinner with Chef Marco once but not Mr. Vega.  He was working late on a case with my father and neither of them had made it home for dinner that night.
 
-And then there was the whole we hadn't had sex in that time frame.  It wasn't like we didn't want to, or that we weren't satisfying that need.  Because we were, just not in the bedroom.  We'd graduated from the teenage make out sessions where we just kissed and barely made first base to third base.  There were no any major arguements now that we were taking it slow.  Actually Max and Drew commented regularly said I looked happier.  I dunno if that was true or not.
+And then there was the whole we hadn't had sex in that time frame.  It wasn't like we didn't want to, or that we weren't satisfying that need.  Because we were, just not in the bedroom.  We'd graduated from the teenage make out sessions where we just kissed and barely made first base to third base.  There were no any major arguements now that we were taking it slow.  Actually Finn and Drew commented regularly said I looked happier.  I dunno if that was true or not.
 
 I looked forward to Wednesday lunches, todays had been no different except I was running late at Zion, and Angel was let out late from his class.  Meeting up for pizza was fine and punching Ant in the face was refreshing.  But he was right.  This was Angel's best friend, and I knew Angel had been avoiding seeing him for fear I'd get jealous.
 
@@ -16,7 +16,7 @@ Arguements are natural.  That's what I keep telling myself anyway.
 
 Seeing Angel on Friday was unusual.  But seeing Angel always put a spring in my step Drew said.  He always knew when we had a date.  They both loved him.  And really they loved his cooking.  Saturday afternoons were fun, we watched a game, or a movie while Angel worked in the kitchen.  He and Mandy struck it off well and they would chat while us guys did our thing.  He wasn't one of the guys.  But he wasn't a girl, he just didn't like watching sports.  He'd curl up on the floor with my knee hooked over his shoulder, his homework spread out on the floor, or whatever recipe he was working on.  I put him to sleep several times just running my fingers through his hair.  We were content.
 
-But today I was also a little nervous.  I was actually going to meet Dorian Vega as Angel's boyfriend and the son of Steven Kennedy his partner.  He didn't like me seeing Angel.  But Angel said they were getting along - though not as well as the could be.  It was still stressing Angel out.  And I didn't like a stressed out Angel, he got quiet and pulled everything inside.  He shut down.  And for us that wasn't going to work.
+But today I was also a little nervous.  I was actually going to meet Daniel Vega as Angel's boyfriend and the son of Steven Kennedy his partner.  He didn't like me seeing Angel.  But Angel said they were getting along - though not as well as the could be.  It was still stressing Angel out.  And I didn't like a stressed out Angel, he got quiet and pulled everything inside.  He shut down.  And for us that wasn't going to work.
 
 Everything needed to be out in the open.  It was how we were working.  So I hoped this double date thing would work.  We could bond over a shared sport.  I didn't expect Chef Marco liked sports anymore than Angel did.  Their tastes were a lot more ... feminine wasn't the right word.  Cooking was hardly a feminine thing but  that was the only way I could describe their similarities.
 
@@ -56,7 +56,7 @@ Up the stairs Mr. Vega walked and his voice was calm as he asked, "Did you now?"
 
 Angel stood up immediately and wrapped his arm around my waist.  "Dad, you know Zane Kennedy."
 
-I offered my hand and Mr. Vega took it and shook firmly.  "This is my Dad, Dorian Vega." Angel said a little more nervously as he leaned into me like he wanted me to protect him from his father.  There was no history of abuse at least not from them Angel hadn't really elaborated beyond his parents were good men.  He didn't like talking about the time before he became a Lucciano for real.  One of the new facts I'd learned about his history.  He was the adopted son of Marco Lucciano, not of Dorian Vega.  But that was because of paperwork.  Angel was always taught his name was Vega-Lucciano and wrote it that way for all of his life - still does.
+I offered my hand and Mr. Vega took it and shook firmly.  "This is my Dad, Daniel Vega." Angel said a little more nervously as he leaned into me like he wanted me to protect him from his father.  There was no history of abuse at least not from them Angel hadn't really elaborated beyond his parents were good men.  He didn't like talking about the time before he became a Lucciano for real.  One of the new facts I'd learned about his history.  He was the adopted son of Marco Lucciano, not of Daniel Vega.  But that was because of paperwork.  Angel was always taught his name was Vega-Lucciano and wrote it that way for all of his life - still does.
 
 "Our seats are right there."  Marco said as he pointed to the two on the other side of Angel.  "I want to sit here."  He almost sounded like he was pouting as he pointed to the aisle seat.  "Shove down you two."  He said.
 
@@ -68,7 +68,7 @@ Mr. Vega saw me watching his partner and chuckled, "They are two peas in a pod. 
 
 Angel spoke from the other side, "Because you started caring that I wasn't blood, I wasn't really your son and you didn't want people to think we were doing inappropriate things."  He didn't sound bitter, just stating a fact.  I'd have been bitter if my dad said don't hug me.  Angel was very physical that had to hurt him and probably added to the strain between them.  I didn't want to get involved.
 
-Dorian nodded, "He's right.  It was the start of our fighting.  Always jealous of his relationship with Marco.  I love them both, but I didn't have the same relationship with my own son."
+Daniel nodded, "He's right.  It was the start of our fighting.  Always jealous of his relationship with Marco.  I love them both, but I didn't have the same relationship with my own son."
 
 Angel chuckled, "Our relationship is just fine Dad."   He looked up from his notebook and leaned over me to see his father better, "Our only issue at present is you think Zane is going to ruin your life.  His dad already knows you are gay.  He knows you have a son.  He told Zane himself."
 
@@ -88,6 +88,6 @@ I laughed.  "It's an issue my mother has and when I brought it up your son kindl
 
 "All of them are.  Surogacy works for my mother's concern about biological bloodlines and all."  I said as I sat back down.  Angel was holding my hand while he wrote, which is why he'd chosen to sit on that side of me in the first place.  "But as far as I'm concerned adoption works just as well.  As Angel likes to point out, there are lots of little kids out there that need their forever homes."
 
-We sat in silence for another ten minutes before the game started.  Dorian and I got into the game.  The other two watched and winghed every timed there was a smash against the glass or a fight.  I whispered to Angel, "For an MMA fighter you sure can't take a hit."
+We sat in silence for another ten minutes before the game started.  Daniel and I got into the game.  The other two watched and winghed every timed there was a smash against the glass or a fight.  I whispered to Angel, "For an MMA fighter you sure can't take a hit."
 
-He grinned at me.  "I can take a hit.  I'm not big on team sports.  I like to go _one on one_."  He winked and his meaning went straight to my cock.  It was fustrating but it had been worth getting to this point.  Everything was going well and even Mr. Vega relaxed a little told me to call him Dorian which had made both Marco and Angel look in his direction then smile when his lips gave a slight turn up.  Something unheard of for him to do?  I didn't ask.  It was all going well.
+He grinned at me.  "I can take a hit.  I'm not big on team sports.  I like to go _one on one_."  He winked and his meaning went straight to my cock.  It was fustrating but it had been worth getting to this point.  Everything was going well and even Mr. Vega relaxed a little told me to call him Daniel which had made both Marco and Angel look in his direction then smile when his lips gave a slight turn up.  Something unheard of for him to do?  I didn't ask.  It was all going well.

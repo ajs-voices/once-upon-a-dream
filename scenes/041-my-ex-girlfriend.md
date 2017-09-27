@@ -26,23 +26,23 @@ I didn't have to be told twice to take a break.  But I didn't rush to see Angel.
 
 I walked slowly towards him but I saw a familiar figure step into his space and I panicked.  What the fuck was Very doing talking to him.  Instead of going to see him I walked past them and to the security booth.  I needed quiet.  I needed time to think.  What was my ex-girlfriend doing talking to my kinda-boyfriend.  Fuck!
 
-I sat down and flipped to the best camera angle in the security office.  Max hadn't said anything as I walked past him into his office and sat down at the computer.  He stood in the doorway until I had settled in and then walked behind me to see what had me in riled up.
+I sat down and flipped to the best camera angle in the security office.  Finn hadn't said anything as I walked past him into his office and sat down at the computer.  He stood in the doorway until I had settled in and then walked behind me to see what had me in riled up.
 
 I looked up at him and saw that his eyes had gone wide.  He pulled a chair and chuckled.  "Wish there was sound, and maybe some popcorn."
 
 Having sound would have been nice, instead we watched as Very leaned into Angel and very blatantly flirted with him.  Her body pressed against his, her finger down his arm.  He didn't look like he was turned on by her advances, but the grin never left his lips and he looked amused.  Until he stood up and pressed her into his seat.  I couldn't see his face but whatever he'd said to her had pissed her off.  I saw the fury on her face as he walked away and I couldn't help the wide grin on my face.
 
-Max laughed.  "Damn that was hot.  Who is she?"
+Finn laughed.  "Damn that was hot.  Who is she?"
 
 "My ex-girlfriend." I said as I stood up and headed for the door.
 
-"That explains alot, does he know that?"  Max asked.
+"That explains alot, does he know that?"  Finn asked.
 
 "Yeah, he does."
 
-Max laughed.  "I want to know what he said that made her so mad."
+Finn laughed.  "I want to know what he said that made her so mad."
 
 "If I find out I'll tell you.  Tell Drew I'll be back at the bar soon as I figure out what just happened."
 
-I heard Max telling Drew what I'd said as I left the security office to find my pretty boy.  And I had a feeling he was mine now more than ever.
+I heard Finn telling Drew what I'd said as I left the security office to find my pretty boy.  And I had a feeling he was mine now more than ever.
 

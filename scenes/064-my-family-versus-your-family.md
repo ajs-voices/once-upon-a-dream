@@ -2,7 +2,7 @@
 
 **Angel**
 
-For the next two days I didn't think about the trip.  I thought a lot about what had happened after Zane told me I was going.  The way he said it made and the way it made me feel, the amazing sex afterwards was on my mind.  I planned with my father the logistics of it.  He had his secretary handling most of it - plane, residency, cars all that stuff.  Mark was the only in the firm that new Dorian had a son.  How the man kept things secret I didn't know - maybe he hadn't, maybe he was the reason Steven Kennedy knew of my family's little secret.
+For the next two days I didn't think about the trip.  I thought a lot about what had happened after Zane told me I was going.  The way he said it made and the way it made me feel, the amazing sex afterwards was on my mind.  I planned with my father the logistics of it.  He had his secretary handling most of it - plane, residency, cars all that stuff.  Mark was the only in the firm that new Daniel had a son.  How the man kept things secret I didn't know - maybe he hadn't, maybe he was the reason Steven Kennedy knew of my family's little secret.
 
 Mark was one of those gay men that made all gay men look bad.  He was professional but he work pastels.  He spoke with the flip of his hand.  He spoke higher than a normal guy.  He was your stereotypical gay man, and a horrible flirt.  I liked Mark except for his ability to grate on my every last nerve so talking with him to plan this trip was not my favorite thing, but we got through it.
 
@@ -42,7 +42,7 @@ Zane was already at the door with his father heading towards the kitchen.  He wa
 
 Babbo looked at me with a great big smile and headed for the kitchen with Zane.  I waved a hand for my father to go first and he looked at me with the 'you are in trouble' look.  He didn't know the half of it.  He stepped through the door and turned on his heel holding a finger up to scold me.  "¿Qué crees que estás haciendo?"
 
-But it was Mr. Kennedy who spoke up.  "Leave the boy alone, Dorian.  There is absolutely no reason for you to hide in the presense of family."
+But it was Mr. Kennedy who spoke up.  "Leave the boy alone, Daniel.  There is absolutely no reason for you to hide in the presense of family."
 
 I hid the happy feeling that coursed through my veins - family, Zane's family... The fake happy smile was back to cover my feelings and my father groaned and whispered, "Hablaremos de esto más tarde."
 

@@ -54,7 +54,7 @@ He let out an exaggerated sigh.  "You see nothing wrong with the name on the car
 
 I sighed. "You are telling me I can't see him even if I wanted to."
 
-Babbo picked up the card and brought it over to me and wrapped me in a hug, "Baby boy I would never tell you, you can't see him.  But your father won't be happy.  And I love Dorian, but he can be a bit of a stickler when it comes to that precious image of his, specially when things don't fit."
+Babbo picked up the card and brought it over to me and wrapped me in a hug, "Baby boy I would never tell you, you can't see him.  But your father won't be happy.  And I love Daniel, but he can be a bit of a stickler when it comes to that precious image of his, specially when things don't fit."
 
 "I know." I sighed.  "I can't stop thinking about him."
 

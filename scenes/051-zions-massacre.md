@@ -4,7 +4,7 @@
 
 I was miserable after Angel left.  After I had slept until 9pm the next day my entire schedule of sleep was completely trashed and I set myself into the nocturnal animal of a club goer.  It worked for the most part.  I wined and dined a new vendor during the dinner hours after waking up.  I worked club hours, sometimes crashing in my office there because I just passed out.
 
-Max and I hit the gym after shifts at Zion.  I didn't worry about running into Angel.  But from the rumors, he'd not been coming in something about being sick.  Or not feeling well.  I doubted it, he was just avoiding me.  And honestly I was avoiding him.
+Finn and I hit the gym after shifts at Zion.  I didn't worry about running into Angel.  But from the rumors, he'd not been coming in something about being sick.  Or not feeling well.  I doubted it, he was just avoiding me.  And honestly I was avoiding him.
 
 I threw myself into work.  It made me happy enough and took my mind off of things.  My dad tried to get me to invite my boyfriend over for dinner and when I told him that wasn't likely to happen since it didn't exist anymore, he tried pushing Jennifer again.
 
@@ -58,31 +58,31 @@ The rest of our conversation turned to how she didn't want to date someone from 
 
 I dropped Jennifer off at her place with a peck on the cheek and a fond farewell.  And an agreement that in a month I'd look her up again and we'd do the date thing again to keep my father happy.  Friends she said.  I'd never had a girl for a friend since Very.
 
-But I didn't do anything with that new information I'd blurted out.  I drove even further into work and the upcoming Valentine's Day bash.  I hated Valentine's Day, it was the worst holiday, but it was one of our big party nights.  Max and Drew hated that I never did sappy themes.  Since we'd opened we had done My Bloody Valentine - there was a lot of fake blood and dead bodies.  We did a mystery murder type thing.  It was a blast.
+But I didn't do anything with that new information I'd blurted out.  I drove even further into work and the upcoming Valentine's Day bash.  I hated Valentine's Day, it was the worst holiday, but it was one of our big party nights.  Finn and Drew hated that I never did sappy themes.  Since we'd opened we had done My Bloody Valentine - there was a lot of fake blood and dead bodies.  We did a mystery murder type thing.  It was a blast.
 
 Last year we did Blue Valentine.  Lots of broken things, and blue everywhere.  The movie was not about valentine's day itself but I could play with the blue.
 
-This year, I went violent again and not movie related - the Saint Valentine's Day massacre.  Drew came up with the clever flyers and I loved it.  Perfect and I doubted any of our normal customers would get it.  Dress appropriately could mean so many things.  So when I was in the security booth and saw the one person I really didn't want to see I did something stupid and sent Mike a message through Max.  Told him I wasn't here.  Angel looked up in the camera wearing a theme appropriate costume and that hat made him look like the ganster is was portraying.  But he had the frown, and my heart crumbled.  My mood went to shit as I locked myself away in the security booth office trying to work.  But close enough to the cameras that I could see him if I wanted to.
+This year, I went violent again and not movie related - the Saint Valentine's Day massacre.  Drew came up with the clever flyers and I loved it.  Perfect and I doubted any of our normal customers would get it.  Dress appropriately could mean so many things.  So when I was in the security booth and saw the one person I really didn't want to see I did something stupid and sent Mike a message through Finn.  Told him I wasn't here.  Angel looked up in the camera wearing a theme appropriate costume and that hat made him look like the ganster is was portraying.  But he had the frown, and my heart crumbled.  My mood went to shit as I locked myself away in the security booth office trying to work.  But close enough to the cameras that I could see him if I wanted to.
 
-Max kept an eye on me but he didn't say anything until I was standing in the doorway overlooking all the cameras.  He pointed to the third camera and my eyes were instantly drawn to the screen.  I don't know what I expected to see.  But it wasn't Angel standing next to the bar.  He had on a fake smile and he was chatting with a guy.  But everything about his posture said he wasn't interested.  They went out on to the dance floor and immediately started dancing with a couple of girls.  I walked back into the office and shut the door behind him.
+Finn kept an eye on me but he didn't say anything until I was standing in the doorway overlooking all the cameras.  He pointed to the third camera and my eyes were instantly drawn to the screen.  I don't know what I expected to see.  But it wasn't Angel standing next to the bar.  He had on a fake smile and he was chatting with a guy.  But everything about his posture said he wasn't interested.  They went out on to the dance floor and immediately started dancing with a couple of girls.  I walked back into the office and shut the door behind him.
 
-I heard Drew on the Max's walkie.  "I could use his help out here."
+I heard Drew on the Finn's walkie.  "I could use his help out here."
 
-Max sighed.  "Angel is there, I don't think he'll go out."
+Finn sighed.  "Angel is there, I don't think he'll go out."
 
 I sighed and opened the door.  "If Drew needs help I'm on it."
 
-Max gave me a weak smile and pressed the button, "He's on his way."
+Finn gave me a weak smile and pressed the button, "He's on his way."
 
 I went out to the bar to help Drew keep things going.  It was busy and I felt bad for hiding for so long.  I eventually was so busy I didn't have time to even think about my pretty boy.  I hadn't noticed when he was back at the bar.  He was waving over the bartender but was looking at one of his friends so he didn't see I was free.  I knew what he'd order, but I decided I'd make him something else.  I mixed cranberry juice, peach liquor, orange juice and vodka and placed it in his hand that was calling over the bartender.  His hand closed around it instinctively but the cup squished a little and he turned to look at the drink and then past it at me.  He light up like the sunrise when he saw me clearly.  His smile was perfect and my heart sank.  Why the fuck were we fighting?  And over what?  He sat down on the barstool and forsake his friends and turned to face the bar completely as he sipped the cocktail I'd made him with a grin.
 
 I gave him a smile and patted the bar in front of him and moved on.  The rest of the night he sat there sipping that one drink.  His friends came by with a girl on each hip and their exchange was quick as he turned back to the bar.  He didn't watch the crowd, but he didn't stare at me either.  I felt his eyes on me, but Drew said he was studying his drink more.
 
-We called last call and people started clearing out.  He didn't move.  And no one moved him.  I hadn't said anything, maybe Max or Drew had.
+We called last call and people started clearing out.  He didn't move.  And no one moved him.  I hadn't said anything, maybe Finn or Drew had.
 
 The club was empty except for staff and Angel.  He set the cup down and looked around.  He smiled at Drew.  "Can I help with anything?"  He was still avoiding looking directly at me.
 
-Drew looked at me and I shrugged.  Max put his arm around my shoulder and tugged me in their direction.  His voice was deep and rumbly, "We could always use a hand cleaning up.  Collect the garbage and wash down the tables.  You know how to bus tables."
+Drew looked at me and I shrugged.  Finn put his arm around my shoulder and tugged me in their direction.  His voice was deep and rumbly, "We could always use a hand cleaning up.  Collect the garbage and wash down the tables.  You know how to bus tables."
 
 He grinned and nodded as he climbed off his barstool and took his cup and everything around him and walked around the bar to grab a tray and a cloth.  He really did know what he was doing.
 

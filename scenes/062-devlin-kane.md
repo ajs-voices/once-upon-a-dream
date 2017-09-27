@@ -6,13 +6,13 @@ I was still reeling from the information Zane had added.  I hadn't expected Zane
 
 Mr. Kennedy's departure left a long hanging silence in the kitchen.  I was pretty sure Zane was waiting on me to make the next move.  I set the papers down on the counter and smiled.  I didn't say anything until I had my arms wrapped around his neck and we were face to face only inches apart.  "Thank you," was all I managed to get out before I was pressing my lips against his and his hands pulled my hips against his.
 
-Lunch would have been forfeit if there wasn't a knock at the door when Zane's hands were unbuttoning my jeans.  We both groaned at the interruption and kissed a little longer before Zane parted and sighed.  "I'll get it.  Max has a key."
+Lunch would have been forfeit if there wasn't a knock at the door when Zane's hands were unbuttoning my jeans.  We both groaned at the interruption and kissed a little longer before Zane parted and sighed.  "I'll get it.  Finn has a key."
 
-Of that I knew, he'd come in unannouced before - thankfully nothing riske was happening.  Not that Zane or I were particularly shy about things, but Max didn't more to lord over us.  He was already picking up too many things.
+Of that I knew, he'd come in unannouced before - thankfully nothing riske was happening.  Not that Zane or I were particularly shy about things, but Finn didn't more to lord over us.  He was already picking up too many things.
 
-It was just the three of us for lunch while Drew was taking care of his family.  Max said he'd take them the left overs for which we were grateful, saved us the trip.
+It was just the three of us for lunch while Drew was taking care of his family.  Finn said he'd take them the left overs for which we were grateful, saved us the trip.
 
-The end of my last class was drawing near.  The next six weeks would be an externship.  I could have easily picked up the hours at Fiore, but I'd worked Fiore my whole life.  I knew everything but the business side of things.  That's what Hector was for.  Cino was Babbo's provisioner and he was in charge of the kitchen and very little else.  Hector did everything else.  It sounded very much like Zane, Drew and Max.  The whole business plan was left for now, mostly because Zane and I hadn't realy had time to sit down and talk about it.  But today I had time, and I had a question or two to ask Zane that had little to do with the business plan, but I was home early and I hoped he'd still be in.
+The end of my last class was drawing near.  The next six weeks would be an externship.  I could have easily picked up the hours at Fiore, but I'd worked Fiore my whole life.  I knew everything but the business side of things.  That's what Hector was for.  Cino was Babbo's provisioner and he was in charge of the kitchen and very little else.  Hector did everything else.  It sounded very much like Zane, Drew and Finn.  The whole business plan was left for now, mostly because Zane and I hadn't realy had time to sit down and talk about it.  But today I had time, and I had a question or two to ask Zane that had little to do with the business plan, but I was home early and I hoped he'd still be in.
 
 When I opened the front door the lights were all on and it looked promising.  I called out, "Zane, you home?"
 
@@ -52,7 +52,7 @@ Zane chuckled.  "He works the service industry, he's used to the rich and famous
 
 I laughed.  "Isn't it?  I seem to always be feeding people from it.  I am not getting paid per meal like a restaurant, but you can never tell who will show up for food."
 
-Zane nodded.  "My friends pop in all the time for food.  I think Max is the worst."
+Zane nodded.  "My friends pop in all the time for food.  I think Finn is the worst."
 
 I shook my head, "No Mandy is."
 

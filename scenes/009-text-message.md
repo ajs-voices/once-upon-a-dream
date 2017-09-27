@@ -2,7 +2,7 @@
 
 **Zane**
 
-The food was excellent.  Desert was good, but the coffee was better.  I was still a little shocked to find out pretty boy was our chef.  Drew and Max didn't bring it up again, at least they knew when not to meddle or get involved.
+The food was excellent.  Desert was good, but the coffee was better.  I was still a little shocked to find out pretty boy was our chef.  Drew and Finn didn't bring it up again, at least they knew when not to meddle or get involved.
 
 Our dinner turned into a proper meeting over the chocolate cake and coffee.  Several more cups of coffee were drank and we were the last ones out.  Even the hostest had left but no one bothered to kick us out.  There was a guy at the bar washing glasses.  I guess he was going to close up.
 
@@ -20,7 +20,7 @@ I looked back but the bar was empty.  So much for that.  Drew grabbed my elbow, 
 
 I shook my head.  "I can walk."
 
-"It's fucking cold out here."  Max shouted as he opened the door.  "Don't freeze your balls off, your pretty boy might not like you then."  He smirked and headed for his car.  "See you later.  I need to get back to Zion."
+"It's fucking cold out here."  Finn shouted as he opened the door.  "Don't freeze your balls off, your pretty boy might not like you then."  He smirked and headed for his car.  "See you later.  I need to get back to Zion."
 
 Drew waved and looked at me, "You sure? It's cold."
 

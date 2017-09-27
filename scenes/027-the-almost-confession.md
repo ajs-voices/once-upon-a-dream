@@ -2,9 +2,9 @@
 
 **Zane**
 
-I was still a little dazed by what went down in the shower.  If this was more than a one night thing we had a lot to talk about.  And it was a talk I was looking forward to having, but still he was a player of the worst kind.  I recalled a conversation I had with Max one night when I covered a shift at Zion.  Watching the cameras was a boring job.  But it was always entertaining.  I found a quiet corner that seemed to have occassional visitors.  It was still on the dancefloor but other than other dancers there was only one camera that could see it and it wasn't the greatest angle.  But couples were in and out of the corner constantly.
+I was still a little dazed by what went down in the shower.  If this was more than a one night thing we had a lot to talk about.  And it was a talk I was looking forward to having, but still he was a player of the worst kind.  I recalled a conversation I had with Finn one night when I covered a shift at Zion.  Watching the cameras was a boring job.  But it was always entertaining.  I found a quiet corner that seemed to have occassional visitors.  It was still on the dancefloor but other than other dancers there was only one camera that could see it and it wasn't the greatest angle.  But couples were in and out of the corner constantly.
 
-I'd seen Angel many times before over the past few years at the club.  And I'd seen him in the corner with girls of every flavor.  Never the same one twice.  Max saw what I was watching and laughed.  His voice boomed in the small security booth when he spoke to Rick sitting next to me.  "Zane found Necker's Nook, and our favorite play boy."
+I'd seen Angel many times before over the past few years at the club.  And I'd seen him in the corner with girls of every flavor.  Never the same one twice.  Finn saw what I was watching and laughed.  His voice boomed in the small security booth when he spoke to Rick sitting next to me.  "Zane found Necker's Nook, and our favorite play boy."
 
 I had to ask, "Necker's Nook?  And your favorite playboy?"
 
@@ -12,7 +12,7 @@ Rick came over and stood behind me, his large finger poked at the screen.  "That
 
 "He's bribing us?"  I asked.  Only slightly annoyed.
 
-Max sat down and pulled his chair closer to watch the show.  "He's not bribing us, tips the bar well. Tips the doorman before he comes in even if he's not getting in early.  He tips the coat girls.  He tips his server.  He tips the DJ.  Flirts with everyone.  And he tips well.  It's not a bribe.  Maybe getting in is, but the rest isn't.  He drops a lot of cash on our doorstep.  And with that everyone turns away while he's playing his game.  Not that you can ever catch him."
+Finn sat down and pulled his chair closer to watch the show.  "He's not bribing us, tips the bar well. Tips the doorman before he comes in even if he's not getting in early.  He tips the coat girls.  He tips his server.  He tips the DJ.  Flirts with everyone.  And he tips well.  It's not a bribe.  Maybe getting in is, but the rest isn't.  He drops a lot of cash on our doorstep.  And with that everyone turns away while he's playing his game.  Not that you can ever catch him."
 
 "Aren't we catching him right now?"
 

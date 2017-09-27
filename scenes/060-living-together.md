@@ -16,7 +16,7 @@ I looked out the bay window and sat down and stared out into the city for a long
 
 After that first night, life went pretty much the same way.  I'd go to bed and Zane would come in shorthly after and curl up around me and we'd sleep until I had to get up.  Breakfast and shower and I'd kiss Zane good-bye and he'd go back to bed for a few more hours.  I'd go to class, and the gym and do my thing before going to work and we'd do it all over again.
 
-The weekends were a lot the same except we actually had time to spend together.  Saturday we spent the mornings together alone, Max and Drew and his family came over before I had to go to work.  Sunday I took off after moving in with Zane.  It was the only day we had to spend all day together.
+The weekends were a lot the same except we actually had time to spend together.  Saturday we spent the mornings together alone, Finn and Drew and his family came over before I had to go to work.  Sunday I took off after moving in with Zane.  It was the only day we had to spend all day together.
 
 It went on like that for a good two months before things were upset.  Friday night Zane got a call from Drew, said Liam and Mandy were drop dead sick and he couldn't get the morning shipment.  Zane agreed to get things going in the morning for Drew.  Which meant I was alone in the apartment dancing in the kitchen with music blaring.  I didn't hear it when Mr. Kennedy walked into the apartment.  I turned around to get something from the island and I found him standing on the other side and I jumped.  I hurriedly paused the music and wiped my hands down.  "Mr. Kennedy."  I offered my hand and added, "I'm sorry I didn't hear you come in."
 
@@ -30,11 +30,11 @@ The chuckle turned to a laugh as Mr. Kennedty took my hand and shook firmly.  He
 
 "Any idea when he'll be back?"
 
-I shrugged.  "No, I'd expect before lunch when Max will show up for food."
+I shrugged.  "No, I'd expect before lunch when Finn will show up for food."
 
 Mr. Kennedy checked his watch.  He smiled.  "It smells wonderful in here."
 
-I said, "Thanks.  I'm working on some receipes.  Zane and Max are my guinea pigs."
+I said, "Thanks.  I'm working on some receipes.  Zane and Finn are my guinea pigs."
 
 "I'm sure they don't mind if it all smells this good."
 

@@ -1,5 +1,16 @@
 Angel & Zane in the real world.
 
+** Blurb **
+
+Zane is a night club owner who has been focusing on making the club profitable and Angel is studying to become a chef. Both are well on their way to accomplishing their career goals, but something is missing. Neither one really is ready to make any commitment. Their careers and their family are what matters most. They aren’t looking for love.
+
+The boys find themselves running into each other all over town without ever really seeing each other but always noticing the other. Angel frequents the club Zane owns. He’s a regular and security knows him well. Zane and his business partners' favorite restaurant is where Angel works part time while he goes to school. The chef there is also Angel's adoptive father.
+
+To make things worse Angel’s other father and Zane’s father are partners in a high profile legal office. Angel’s father has been hiding his family from the partners for the entirety of his career. To them he’s a single man focused on his work. They don’t know he has a man for his legal partner and love of his life or that they have an adopted son.
+
+Zane has his own problems. His parents are trying to get him to settle down and marry a fellow lawyer in the firm so they can have grandkids. But Angel and Zane are drawn together even as everything else tries to separate them - sometimes even they get in the way of their happiness.
+
+
 **Setting:** Christmas time in New York City
 **Themes/Plot Possibilities:** Star-crossed lovers, Forbidden Love, Soulmates, He’s got a reputation, They have terrible first impressions of one another, He doesn’t want distractions
 
@@ -15,7 +26,7 @@ Angel & Zane in the real world.
 * Zane is twenty-five and a Scorpio (Nov 15)
 * Zane and Veronica were always friends. As they grew older their relationship changed from friendship to romance. They were each other's first and only until college when Zane met Tristan. Veronica encouraged Zane to explore with Tristan. Zane loved both of them, and when the three of them finally came together it was the beginning of the end. Veronica and Tristan fell in love and would have been great if they had both loved Zane back instead they wanted a couple and not a threesome breaking Zane's heart. Zane has sworn off relationships since but has enjoyed exploring both sexes.
 * Zane finished getting a duel MBA and marketing degree from  Columbia, his father's alma mater, even though one of his songs was sold to a rising pop artist and went multi-platinum.
-* Zane opened up Zion with the money he was earning from the hit song with Max and Drew. Max handles security, Drew handles the personnel and manages the day to day of the club, Zane handles the money and business aspects from accounting to contracts and leases.
+* Zane opened up Zion with the money he was earning from the hit song with Finn and Drew. Finn handles security, Drew handles the personnel and manages the day to day of the club, Zane handles the money and business aspects from accounting to contracts and leases.
 * Zane owns a three bedroom apartment at 24 W 55th St # 5D/E (Currently on sale for $3.95 million)
 * **Quirks:**  Frustrated/annoyed/etc pulls lips in and/or rakes fingers through his hair, quotes movie and song lyrics, highly sarcastic
 * **Looks:** Baby blue eyes, ink black hair with blond highlights long enough on the top to put into a Mohawk when he wants to, 6'0" broad shoulder, well defined musculature
@@ -28,12 +39,12 @@ Angel & Zane in the real world.
 
 ## Angel Vega-Lucciano
 
-* Angel Vega-Lucciano is the adopted son of Dorian Vega, a senior partner at Hudson, Kennedy & Vega and master chef Marco Lucciano of Fiore, a five star restaurant in Little Italy.
+* Angel Vega-Lucciano is the adopted son of Daniel Vega, a senior partner at Hudson, Kennedy & Vega and master chef Marco Lucciano of Fiore, a five star restaurant in Little Italy.
 * Angel works part time in his father's restaurant everywhere from being a waiter to sous-chef, sometimes even covering for Marco running the kitchen while he goes through culinary school at ICE (an 8 month course in culinary arts and a 7 months course in Restuarant and Culinary management)
 * Angel is twenty-two and a Cancer (Jun 21).
 * Nothing is really known about Angel's birth, who his parents were, he was found abandoned by the dumpsters behind the restaurant Marco worked at weeks old.
-* Marco and Dorian tried to adopt him for years but were thwart with frustration because they were gay men. When Angel was six they were finally able to adopt him.
-* In the six years between Marco finding him and their adopting him, Angel was taken away and given to a couple as a group home while Marco and Dorian were investigated. The husband looked good on paper, but when left alone with the five children he beat one 3 year old to death and abused all the others including Angel. This was the final push for Dorian and Marco to adopt Angel come hell or high water.
+* Marco and Daniel tried to adopt him for years but were thwart with frustration because they were gay men. When Angel was six they were finally able to adopt him.
+* In the six years between Marco finding him and their adopting him, Angel was taken away and given to a couple as a group home while Marco and Daniel were investigated. The husband looked good on paper, but when left alone with the five children he beat one 3 year old to death and abused all the others including Angel. This was the final push for Daniel and Marco to adopt Angel come hell or high water.
 * Angel was diagnosed with PTSD from the trauma he suffered and later with OCPD. He sticks to a rigid schedule and pattern of life. There are some underlying abandonment issues but he feels loved by his parents.
 * Angel's first kiss ended with him getting beaten by the boy who he'd kissed. His first sexual experience was a few months later with a girl who took pity on him and tried to 'change' him. Thus making Angel not really want to let either gender close to him.
 * Before Angel started at ICE he got his AA degree in Liberal Arts - college wasn't for him.  Before that he backpacked across Europe cooking in whatever place would take him to earn a few bucks for about a year and a half.
@@ -52,11 +63,11 @@ Angel & Zane in the real world.
 * Morris Hudson is a senior partner of Hudson, Kennedy and Vega a prestigious lawyer firm in NYC with high profile clients and some not so savory clientele.
 * Steven Kennedy, Zane's father and senior partner.
 * Dr. Violet Malone-Kennedy OB to the stars and Zane's mother.
-* Dorian Vega, Angel's adoptive father and senior partner.  His clients and partners do not know he's gay.
+* Daniel Vega, Angel's adoptive father and senior partner.  His clients and partners do not know he's gay.
 * Marco Lucciano, 5 star chef of Fiore and Angel's adoptive father.
 * Jennifer Price, an up and coming lawyer in the firm Zane's father is trying to get him to date.
 * Anthony Giovanni, Angel's friend he went back packing with and a friend with benefits.
-* Max Parker - Zane's business partner, handles security at Zion
+* Finn Parker - Zane's business partner, handles security at Zion
 * Drew Reed - Zane's business partner, handles the staff and club management
 * Mandy Reed - Drew's wife
 * Veronica Harris - Zane's ex - possible appearance

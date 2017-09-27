@@ -40,7 +40,7 @@ I nodded.  "Yeah.  I just need to tell my dad."
 
 Zane sighed.  "Fuck.  I slipped and told my dad who you were."  I groaned as Zane opened the door.  "Wanna hear something funny?"
 
-I shrugged wondering what my father would do when he found out.  "My dad already knew.  He was surprised you were Dorian's son.  But he knew he had one and that he was into men despite his affiation with Ms. Angelina.  He said Mr. Hudson knew too.  The clients not so much, but they'd keep his secret as long as he wanted to keep it was my impression."
+I shrugged wondering what my father would do when he found out.  "My dad already knew.  He was surprised you were Daniel's son.  But he knew he had one and that he was into men despite his affiation with Ms. Angelina.  He said Mr. Hudson knew too.  The clients not so much, but they'd keep his secret as long as he wanted to keep it was my impression."
 
 "I don't think my father will think that's funny.  But it's good to know. I'm sorry I put that on you."
 

@@ -6,7 +6,7 @@ I had woken up alone with the sun streaming in my window. My apartment was quiet
 
 There was still fresh grounds from the previous morning and my first cup of coffee was glorious.  Not as good as what Angel had made in the french press but this was still better than my usual brand.  What I couldn't give to feel him next to me right now.
 
-Where the fuck did that come from?  The clock on the microwave ticked forward 2:30.  Shit, I'd really slept in.  But then again I got in at 5am.  Max and I had gone to grab breakfast after we locked everything up.  Drew and Mandy had been gone since 1am.  They were zombies by the time it got that late.  So much for having kids I thought.
+Where the fuck did that come from?  The clock on the microwave ticked forward 2:30.  Shit, I'd really slept in.  But then again I got in at 5am.  Finn and I had gone to grab breakfast after we locked everything up.  Drew and Mandy had been gone since 1am.  They were zombies by the time it got that late.  So much for having kids I thought.
 
 Dinner at Gram's was at 5:30 sharp.  I couldn't be late.  I had 3 hours to get showered, changed and to her house out in Queens before we ate.  And I didn't want to arrive just as the eating started.  My parents would kill me.
 

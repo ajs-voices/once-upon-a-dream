@@ -2,7 +2,7 @@
 
 **Zane**
 
-I spent most of the day in the studio messing around with the song I'd been toying with.  The dream I'd had a few nights back played over and over - the bits I remembered anyway.  And the lyrics were playing out well now that I had something to work with.  But it wasn't all fun and games.  It was our weekly business dinner with Drew and Max.  I spent all morning after the gym in the office drafting the weekly reports.  I don't know why I waited until the last minute to do these things.  You'd think I'd know better, but dumb ass me put it off.
+I spent most of the day in the studio messing around with the song I'd been toying with.  The dream I'd had a few nights back played over and over - the bits I remembered anyway.  And the lyrics were playing out well now that I had something to work with.  But it wasn't all fun and games.  It was our weekly business dinner with Drew and Finn.  I spent all morning after the gym in the office drafting the weekly reports.  I don't know why I waited until the last minute to do these things.  You'd think I'd know better, but dumb ass me put it off.
 
 But there was dinner to look forward to.  Fiore's was in the middle of Little Italy.  It was almost like what I imagined walking into a small cafe in Italy might be like.  It wasn't the type of restuarnt where you came in sat at a table and had great Italian food.  No, Fiore's posted the entire Italian experience.  Sure it looked like your regular restuarant on the outside.  Even looking in the window you thought that.
 
@@ -10,19 +10,19 @@ You walked into a foyer where the coat man took your coat, and now in the middle
 
 The tables were covered in white linen set with fine plates and silverware.  The glasswear was beautiful.  But you felt like you were sitting in a cafe in Italy.  Or at least that's what it felt like to me, I hadn't traveled outside of the Tri-State area.
 
-Susie sat me down at a table, Max and Drew weren't there yet.  The server brough over a bottle of wine.  We had a standing reservation every Monday night at 8 for this meeting.
+Susie sat me down at a table, Finn and Drew weren't there yet.  The server brough over a bottle of wine.  We had a standing reservation every Monday night at 8 for this meeting.
 
-Max arrived and sat down.  He was dressed in a fine suit.  "You just come from a funeral?" I joked.
+Finn arrived and sat down.  He was dressed in a fine suit.  "You just come from a funeral?" I joked.
 
-Max frowned.  "Yeah actually.  My great aunt on my dad's side passed."
+Finn frowned.  "Yeah actually.  My great aunt on my dad's side passed."
 
 Shit!  "Oh.  Sorry for your loss."
 
-Max's lips turned into a smile and patted my back.  "Really didn't know the woman, I only went to support my Mom, since Dad's away on business."  He sighed, "He's always away on business these days. I think he's having an affair.  I should kick his ass."
+Finn's lips turned into a smile and patted my back.  "Really didn't know the woman, I only went to support my Mom, since Dad's away on business."  He sighed, "He's always away on business these days. I think he's having an affair.  I should kick his ass."
 
 Drew sat down in the middle of the conversation and asked, "Who's ass we kicking?  Zane's?  I already did that."  He smirked at me.  "He was a little distracted."
 
-"Oh?"  Max asked.  "What had your attention this morning Zane?  You find some girl to take home?"
+"Oh?"  Finn asked.  "What had your attention this morning Zane?  You find some girl to take home?"
 
 I sighed and was grateful our server arrived.  She was a pretty thing with bright green eyes.  She looked nervous, her first day.  "I'm Nadia, I'll be your server today. Can I take your order?"  she asked
 
@@ -30,7 +30,7 @@ Drew looked up at Nadia with a bright smile.  "Nadia, we'll make it real easy fo
 
 Her smiled slipped, "I'm sorry, the chef is sick today and we've aone of his sous chef's taking over for the night."
 
-Max asked, "Is he any good?"
+Finn asked, "Is he any good?"
 
 The girl blushed.  "Almost as good as Chef Marco I'm told.  But I wanted to warn you, you might not be getting what you expected."
 

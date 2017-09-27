@@ -4,7 +4,7 @@
 
 Asking Angel to move or at least be able to afford his living arrangements had been something I was thinking about for a few days when he agreed I wasn't surprised.  He had agreed before things blew up.  Only now there was more at stake, we had been dating - fucking dating - me.  I still couldn't wrap my head around it.  And living with Angel was something I was prepared to do.  I missed having him close.  And I was selfish - I wanted him all to myself in every possible way.  I wanted him to cook for me, I wanted him in my bed.  I was being selfish when I asked him.  I know I said I was doing it to help him out - but I was doing it all for me.
 
-Getting his friends to help him move was a good idea, though I was pretty sure Max and Drew would have helped out and they still might - I mean they've been eating for free for months on Saturday.  And with him at my place they knew where to stop by for more good eats.
+Getting his friends to help him move was a good idea, though I was pretty sure Finn and Drew would have helped out and they still might - I mean they've been eating for free for months on Saturday.  And with him at my place they knew where to stop by for more good eats.
 
 Carrying his things into my home was heavy - not that his things were heavy - my heart was heavy but not in a bad way.  It wasn't freeing.  It was scary to have this neat freak of a guy living with me.  It was scary having to share my space, but it felt right and safe.  And like I had all my things around me.  I could keep my pretty boy safe.  And he was mine.  I'd come to terms with that set of emotions when I punched Ant in the face.  He was mine.  And now he was living in my house where I could take care of him.
 

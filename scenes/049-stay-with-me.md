@@ -4,7 +4,7 @@
 
 Holy fuck!  It was my only thought as I left Angel in my living room to deal with breakfast.  That was a first for me, and not precisely what I had in mind when I had the initial thoughts of getting him naked in my living room.  He made me weak.  But I wasn't complaining.
 
-I pulled on a clean t-shirt and boxers and dropped his clothes in the hamper without thinking about it.  I heard music start to play and then the phone rang.  I stood in the shadows of my room listening when I heard who it was.  It was initially so Angel would have privacy, but then Mr. Vega started in on him about me.  He really didn't like me.  It made me smirk.  I'd never actually given it much thought to my lovers parents before now.  It stung.  But Dorian Vega I knew was particular about things.  It was one reason why he was a partner versus other people in the firm.  Dad respected him.  And even knowing he was hiding something as big as that.
+I pulled on a clean t-shirt and boxers and dropped his clothes in the hamper without thinking about it.  I heard music start to play and then the phone rang.  I stood in the shadows of my room listening when I heard who it was.  It was initially so Angel would have privacy, but then Mr. Vega started in on him about me.  He really didn't like me.  It made me smirk.  I'd never actually given it much thought to my lovers parents before now.  It stung.  But Daniel Vega I knew was particular about things.  It was one reason why he was a partner versus other people in the firm.  Dad respected him.  And even knowing he was hiding something as big as that.
 
 I listened to Angel tell his father off and then threaten to move out.  But I heard who he was going to stay with and my heart sank.  Fuck!  Tall dark and handsome was going to have Angel when I didn't.  I growled to myself but put a smile on my lips and walked out towards Angel.  He looked defeated.  Shit! I wondered what I looked like.
 
@@ -28,7 +28,7 @@ Angel started the pan for the pancakes and looked across at me with a grin, "So 
 
 I smirked.  "I don't play in the band."
 
-He grinned, "Maybe you should.  Then you wouldn't need anyone else to work it.  You could do it by yourself."  The smile told me it was a joke.  But he really wasn't far from the truth.  Max and Drew accused me on a regular basis of putting too much into Zion.  Too much time, too much money.  But especially too much time.  Zion didn't make money because it was that great of a place it was because I worked my ass off to make sure it did.  The best deals, the best product for the lowest price.  I met with our vendors and our other providers to make deals.  I wined and dined them on my dollar so Zion wouldn't take the hit.  We stayed in the black because I worked hard to do it.
+He grinned, "Maybe you should.  Then you wouldn't need anyone else to work it.  You could do it by yourself."  The smile told me it was a joke.  But he really wasn't far from the truth.  Finn and Drew accused me on a regular basis of putting too much into Zion.  Too much time, too much money.  But especially too much time.  Zion didn't make money because it was that great of a place it was because I worked my ass off to make sure it did.  The best deals, the best product for the lowest price.  I met with our vendors and our other providers to make deals.  I wined and dined them on my dollar so Zion wouldn't take the hit.  We stayed in the black because I worked hard to do it.
 
 I shrugged.  "I'm a better music writer than a preformer."
 
@@ -56,7 +56,7 @@ Angel laughed.  Breakfast was coming along and I wasn't sure how he managed all 
 
 "Did you always want to own a club?"  He asked flipping the last pancake he'd made, there was some batter left over but he hadn't started another one.  He moved around my kitchen like it was his own.  I was impressed with the way he moved.  He'd made me breakfast before but I hadn't gotten a chance to watch him.
 
-I didn't really know how to answer his question.  "I didn't have plans at all.  Max and Drew were joking one night after we'd gone out about how they'd run a club.  I suggested we could do it.  And we'd make money doing it.  I was still getting my MBA at the time so all those fresh new business and marketing things were in my head.   It wasn't a month after I graduated that we opened up Zion.  Opening night was phenominal.  And things never slowed down."
+I didn't really know how to answer his question.  "I didn't have plans at all.  Finn and Drew were joking one night after we'd gone out about how they'd run a club.  I suggested we could do it.  And we'd make money doing it.  I was still getting my MBA at the time so all those fresh new business and marketing things were in my head.   It wasn't a month after I graduated that we opened up Zion.  Opening night was phenominal.  And things never slowed down."
 
 Angel pulled the icecream out of the freezer and was plating food meticuoulsly and I was about to say something but he kept talking.  "I remember Zion's opening night.  Ant and I had been home for like 2 hours when his brother called inviting us along."
 

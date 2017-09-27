@@ -38,7 +38,7 @@ We were still holding hands when I walked towards my apartment.  Neither of us l
 
 His breath against my neck was making me hard and it was hard to think.  He spoke softly, "You are right, she was my dance instructor."
 
-The last deadbolt came unlocked and I pushed the door open and turned to him in his arms with a smirk.  "So that makes Dorian Vega you father too?"
+The last deadbolt came unlocked and I pushed the door open and turned to him in his arms with a smirk.  "So that makes Daniel Vega you father too?"
 
 "Good deduction."  He frowned, "But you can't tell anyone.  No one at the firm knows my father is gay or that he has a son."
 

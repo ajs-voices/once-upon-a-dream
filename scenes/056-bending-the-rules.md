@@ -10,7 +10,7 @@ I stole a glance at Babbo and he had an amused smile behind his notebook.  I put
 
 Dad stopped us before going down giving me a hug and a firm handshake to Zane.  "We should get together for a dinner neither one of these two cook."
 
-Zane nodded.  "Sounds great.  I can make time whenever as long as it's not Thursday through Saturday, those nights take bribery for Max and Drew to let out of our busiest nights."
+Zane nodded.  "Sounds great.  I can make time whenever as long as it's not Thursday through Saturday, those nights take bribery for Finn and Drew to let out of our busiest nights."
 
 Babbo grinned, "And Monday's he's already eating at Fiore."
 
@@ -32,7 +32,7 @@ It wasn't an order but it certainly wasn't a question.  I looked at Zane while h
 
 I couldn't help the rush of adrealine that coursed through my body.  My body was almost shaking, my heart was racing.  Zane continued softly, "It's not the sex."  He gave me a wide smile that said he liked the sex.
 
-I nodded.  "Can we stop by my place so I don't have to go back before going to Max's tomorrow?" I asked confident he'd say yes.
+I nodded.  "Can we stop by my place so I don't have to go back before going to Finn's tomorrow?" I asked confident he'd say yes.
 
 Zane grinned, "Are you going to experiment in my kitchen?"
 
@@ -54,7 +54,7 @@ He leaned against the counter that jutted out into the middle of the living spac
 
 I nodded, "Probably, but that didn't answer my question."  I closed the distance between us and put my hands on either side of him, trapping him against the counter and my body.  "Am I taking the spare room or sharing with you?"  I said as I pressed my body against his.  It had been a long time since I'd let myself do this to him.  To feel him this close.  To smell his cologne and his soap mingled so closely to his skin.  I loved the way he smelled and I pressed my nose to his neck and took a deep comforting breath.  I whispered against his skin, "I'm okay either way."
 
-He put his hands on my shoulders and pushed me away and smiled.  "Just live with me Angel.  No definitions.  Just come live with me.  Stay in my bed.  Take up space in my apartment.  Make my kitchen yours.  Pick up the stupid things on the floor that drive you mad.  Put everything in it's place. I'll call Max and Drew and move your Saturday experiment testing to our place."
+He put his hands on my shoulders and pushed me away and smiled.  "Just live with me Angel.  No definitions.  Just come live with me.  Stay in my bed.  Take up space in my apartment.  Make my kitchen yours.  Pick up the stupid things on the floor that drive you mad.  Put everything in it's place. I'll call Finn and Drew and move your Saturday experiment testing to our place."
 
 "Our place?"  I grinned.  "I like that."  I breathed out slowly to control my feelings and nodded.  "Okay."
 
