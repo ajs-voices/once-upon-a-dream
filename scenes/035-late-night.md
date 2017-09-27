@@ -74,7 +74,7 @@ My father asked, "What is Angel up to?"  The look on my face must have been surp
 
 A response came back and I read it quickly.
 
-Angel: _Yeah, so Baboo can be with the family._
+Angel: _Yeah, so Babbo can be with the family._
 
 I added to my previous answer, "He's covering for Chef Marco so he can be with family tonight."
 

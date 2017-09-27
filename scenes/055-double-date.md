@@ -4,7 +4,7 @@
 
 Nothing about our date had gone according to plan.  Our life had become a series of planned events.  I still wasn't sure how it fit me, but it was either that or not see Angel at all.  My schedule was flexible, his wasn't.  He had classes when he had classes and there was nothing I could do to talk him out of going to class.  I had only tried once in the almost two months we had been dating.  That term still boggled my mind.  He was my boyfriend.  My mother kept asking to meet him.  But she always said it with a little bit of disappointment.  Like her entire grandchild thing was out the door.  It wasn't.
 
-We'd talked a great deal about it because of my mother.  Like we talked a great deal about how to get his father on board.  I was finally understanding the whole my dad, my father, Baboo, Dad thing he had going on.  We'd had dinner with Chef Marco once but not Mr. Vega.  He was working late on a case with my father and neither of them had made it home for dinner that night.
+We'd talked a great deal about it because of my mother.  Like we talked a great deal about how to get his father on board.  I was finally understanding the whole my dad, my father, Babbo, Dad thing he had going on.  We'd had dinner with Chef Marco once but not Mr. Vega.  He was working late on a case with my father and neither of them had made it home for dinner that night.
 
 And then there was the whole we hadn't had sex in that time frame.  It wasn't like we didn't want to, or that we weren't satisfying that need.  Because we were, just not in the bedroom.  We'd graduated from the teenage make out sessions where we just kissed and barely made first base to third base.  There were no any major arguements now that we were taking it slow.  Actually Max and Drew commented regularly said I looked happier.  I dunno if that was true or not.
 
@@ -46,7 +46,7 @@ He grinned against my lips, "Neither do I."
 
 We grabbed Greek food a few stops from the Garden and were early to our seats.  Ant hadn't told us that they were behind the Ranger's penalty box not at the glass but three rows back.  I was pretty happy.  My generic Ranger's jersey was on under my coat and I when I pulled my coat off Angel snagged it and placed it over the front of him.  He was going to sleep.  At least that's what it looked like when he laid his head on my shoulder.  I leaned my head against his and snaked a hand under my coat to hold his hand.  The little hum of acceptance made me smile.
 
-There was a clearning of a throat next to us and I when I stood up sudden Angel tipped over falling into my seat with no grace.  He looked up sheepishly at his dad and grinned.  "Hey Baboo."
+There was a clearning of a throat next to us and I when I stood up sudden Angel tipped over falling into my seat with no grace.  He looked up sheepishly at his dad and grinned.  "Hey Babbo."
 
 "Anthony was supposed to be here, your father won't be happy."
 

@@ -6,13 +6,13 @@ My parents showed up and I started panicking.  Thankfully I had Zane with me.  G
 
 Dad and Zane actually got along well considering.  It was amusing watching them cheering for the team.  It was the atmospher I was sure, but I'd seen both of them alone watching a game to know they did this on the couch too.  I almost expected them to chest bump at one point but neither of them did.  If they'd been frieds I'm sure it would have happened.
 
-I stole a glance at Baboo and he had an amused smile behind his notebook.  I put mine away and curled up with Zane's coat while watching him.  The game was eventful - lots of shouting and sirens and shoving.  A few fights broke out and there was blood on the ice.  By the time the game was over my father and my boyfriend had bonded to a much greater degree than they had before.  We walked with them out of the garden towards the subway station.
+I stole a glance at Babbo and he had an amused smile behind his notebook.  I put mine away and curled up with Zane's coat while watching him.  The game was eventful - lots of shouting and sirens and shoving.  A few fights broke out and there was blood on the ice.  By the time the game was over my father and my boyfriend had bonded to a much greater degree than they had before.  We walked with them out of the garden towards the subway station.
 
 Dad stopped us before going down giving me a hug and a firm handshake to Zane.  "We should get together for a dinner neither one of these two cook."
 
 Zane nodded.  "Sounds great.  I can make time whenever as long as it's not Thursday through Saturday, those nights take bribery for Max and Drew to let out of our busiest nights."
 
-Baboo grinned, "And Monday's he's already eating at Fiore."
+Babbo grinned, "And Monday's he's already eating at Fiore."
 
 "Yeah. There is that too." Zane  agreed.
 
@@ -20,7 +20,7 @@ Dad nodded.  "I can schedule it around Angel.  I'm sure he's got blocks set up t
 
 Zane chuckled.  "Yeah his open times I can work with."
 
-Baboo wrapped his arm into Dad's and tugged him away, "Let them go home."  He leaned in and whispered in Dad's ear and I tuned out any and every thought that ran through my head.
+Babbo wrapped his arm into Dad's and tugged him away, "Let them go home."  He leaned in and whispered in Dad's ear and I tuned out any and every thought that ran through my head.
 
 Zane laughed.  "They are going to get laid tonight."
 

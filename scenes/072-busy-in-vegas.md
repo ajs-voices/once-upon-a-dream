@@ -10,7 +10,7 @@ The first night I worked Harvest and sous chefed under a master chef.  I was kep
 
 I didn't know where I was going or when or when I'd get to sleep.  Jacob ran me ragged.  I didn't have time to think.  Hell I barely had time to sleep before Jacob had me bustiling off someplace else.  But I managed to call Zane at least once a day.  And managed to talk longer than a few minutes on Tuesday nights.  The weekends were the worst I think I got three hours of sleep each day.  I was drained.
 
-Baboo called twice and checked up on me.  He asked, "Is Jacob treating you right?"
+Babbo called twice and checked up on me.  He asked, "Is Jacob treating you right?"
 
 I hadn't seen Jacob more than once the entire time I was there.  We had lunch on my third day to catch up.  I yawned my answer, "Yeah.  I'm good."
 

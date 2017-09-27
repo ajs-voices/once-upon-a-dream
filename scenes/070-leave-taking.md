@@ -2,7 +2,7 @@
 
 **Angel**
 
-The closer Vegas got the more anxious I got.  Baboo noticed and had me washing pots and pans so I'd not break anything.  I spent most of my free time cooking things that Zane could make when I was gone.  I knew he could take care of himself.  He had been doing it long before I came along, but I wanted to leave him something of me behind.  Other than the kitchen, his apartment still was very much his.
+The closer Vegas got the more anxious I got.  Babbo noticed and had me washing pots and pans so I'd not break anything.  I spent most of my free time cooking things that Zane could make when I was gone.  I knew he could take care of himself.  He had been doing it long before I came along, but I wanted to leave him something of me behind.  Other than the kitchen, his apartment still was very much his.
 
 The day of my flight I was a complete mess though anyone outside of Zane or my parents was unlikely to notice.  The fake smile plastered on my face hiding the jittering hands and the freaking out I was doing on the inside.  I don't know how much my father had to do with it, but Zane gave me a list of things I had to do while I was in Vegas.  He grinned at me when he handed me the list.  "Because you'll just sit in your room and cook and fret, a list of things you have to do while you are in Vegas."  And he knew exactly what he was doing when he said it.  Knew the precise reaction I'd have.  For every time he protested againt my submission he used it to manipulate me.  I never drew attention to it, knew if I did he'd stop, or worse we'd argue over it.  I didn't want to argue with Zane.  Not over this.  There was so many more important things that could be a topic of arguing.  He liked our dynamic even if he said he didn't.
 

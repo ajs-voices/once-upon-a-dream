@@ -4,7 +4,7 @@
 
 I watched Zane leave my floor.  I waited until he called to grab a shower to wash the smell of club off my skin.  We didn't speak for long, but I was happy to hear his voice.
 
-The weekend passed, Monday came and went and I saw Zane briefly at Fiore as I was coming in to help Baboo close up when it was time.  We exchanged a few words and shared a kiss outside the coat room.  Baboo commented on the perpetual smile I had the rest of the night.
+The weekend passed, Monday came and went and I saw Zane briefly at Fiore as I was coming in to help Babbo close up when it was time.  We exchanged a few words and shared a kiss outside the coat room.  Babbo commented on the perpetual smile I had the rest of the night.
 
 Wednesday came and Zane picked me up as he promised.  We walked to a Mexican Restaurant and shared a sampling of everything on the menu after I told Zane all about my plans to backpack across Mexico, Central and South America.  We spent 2 hours talking and eating.  There was a lot of flirting and touching.  Instead of walking me home, Zane took the train with me to my next class.  I was early but we sat outside on a bench talking until my alarm to get to class went off.  The kiss we shared was needy but we parted ways none-the-less with promises of doing it again soon.
 
@@ -12,7 +12,7 @@ Three days later I called Zane while I was experimenting with a fusion receipe. 
 
 I was enjoying the time getting to know Zane with his friends.  We had lunch dates every Wednesday afternoon.  The one thing we both enjoyed was eating food.  We liked it for different reasons, but we spent a lot of time talking about this that and everything else in between.
 
-The week of Spring Break I worked quite a bit with Baboo, but Zane and I managed to catch a movie which landed us back at his place.  Surprisingly we both behaved, well as two men can behave anyway.  There was a lot of kissing and teenage antics on his couch.  I remember having a good laugh over the fact that I had never done that before.  Which brought up the conversation of firsts over chocolate icecream.  Zane didn't really eat much as he kept feeding me his while I ate my own.  But he told me about his first time with Veronica and I told him about the girl who tried to change me.
+The week of Spring Break I worked quite a bit with Babbo, but Zane and I managed to catch a movie which landed us back at his place.  Surprisingly we both behaved, well as two men can behave anyway.  There was a lot of kissing and teenage antics on his couch.  I remember having a good laugh over the fact that I had never done that before.  Which brought up the conversation of firsts over chocolate icecream.  Zane didn't really eat much as he kept feeding me his while I ate my own.  But he told me about his first time with Veronica and I told him about the girl who tried to change me.
 
 She was nothing really, but a girl I'd known in school.  She'd seen the beating I took a few weeks earlier when I'd kissed Dylan.  He pummeled me.  We both got a few days of in school suspension for fighting.  I vaguely remember her name, Becky or Nicky something like that.  She persuaded me rather easily to have sex with her in the school cleaning closet.  Her hands were everywhere and it didn't last long once I felt her hot wet pussy around me.  She was proud of herself.  I got an early rap as being **that** guy.  The playboy, she never spoke to me again, and I never spoke to her, but she spread the rumor that I was easy to talk into it so naturally all the bad girls came after me.  And thus started the whole let's fuck girls even though I still only saw guys in my dreams.
 
@@ -36,7 +36,7 @@ I looked at Zane and saw a light in his eyes.  He nodded and grinned as he agree
 
 Ant laughed, "He's got his dad wrapped around his finger.  If it were his father we might have issues.  Mr. Vega probably hates hockey."
 
-"Actually he likes hockey.  So does Baboo."
+"Actually he likes hockey.  So does Babbo."
 
 Ant laughed.  "I can give you both my tickets and you can go with your dads.  Make it a family thing."
 

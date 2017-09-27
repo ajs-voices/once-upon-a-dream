@@ -20,7 +20,7 @@ I shook my head.  "No Dad, I don't.  So what if the practice finds out you like 
 
 "But you know."  My dad said.
 
-I nodded.  "I do.  And your tailored clothes say otherwise.  Your nails, your perfect hair.  The fact Baboo is with you 80% of the time even with Angelina on your arm.  It's all stereotypes.  I get that Dad, but you aren't the quintesential straight man."
+I nodded.  "I do.  And your tailored clothes say otherwise.  Your nails, your perfect hair.  The fact Babbo is with you 80% of the time even with Angelina on your arm.  It's all stereotypes.  I get that Dad, but you aren't the quintesential straight man."
 
 "And what should I do differently son?"
 
@@ -32,7 +32,7 @@ I nodded.  "I do.  And your tailored clothes say otherwise.  Your nails, your pe
 
 He sighed and tapped his chin.  "You are right.  But why this man?  There are a thousand other men in the city who would be interested in you."
 
-"And a thousand men who aren't Zane, Dad.  What would you do if your parents said you couldn't be with Baboo?  I know what you'd do.  You'd do what you already did.  You'd stay here in America away from your family - only seeing them on holiday's like tonight.  You'd live with him, you'd love him despite what your family said.  Dad, he may not be the one, but I want to find out for sure."
+"And a thousand men who aren't Zane, Dad.  What would you do if your parents said you couldn't be with Babbo?  I know what you'd do.  You'd do what you already did.  You'd stay here in America away from your family - only seeing them on holiday's like tonight.  You'd live with him, you'd love him despite what your family said.  Dad, he may not be the one, but I want to find out for sure."
 
 My father sighed.  "Angel.  Please.  There are other men out there."
 
@@ -40,7 +40,7 @@ I stood up.  "Dad.  I'm not going to stop seeing him. "  I took a few steps towa
 
 "You are going to miss dinner?"
 
-I sighed.  "Would you rather Baboo be here or me?"
+I sighed.  "Would you rather Babbo be here or me?"
 
 He sighed and nodded.  "Tomorrow you are here, all day to see Mama.  She misses you."
 

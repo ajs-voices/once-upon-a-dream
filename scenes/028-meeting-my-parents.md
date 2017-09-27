@@ -96,11 +96,11 @@ Zane raised an eyebrow and smirked.  "I kinda like the idea of you wearing my cl
 
 There was a knock on my door.  "Carino?"
 
-"I'm here Baboo.   It's unlocked and safe."
+"I'm here Babbo.   It's unlocked and safe."
 
 Zane pressed me up against the closet door and pressed a chaste kiss to my lips just as my dad walked in.
 
-Baboo chuckled.  "Mr. Kennedy, a pleasure."
+Babbo chuckled.  "Mr. Kennedy, a pleasure."
 
 Zane pulled me against him.  "It's Zane, chef.  Mr. Kennedy is my father."
 
@@ -116,7 +116,7 @@ He patted my head and ruffled my hair.   He offered Zane his hand.  "A pleasure.
 
 "If your son brings me around again."
 
-Baboo laughed.  "Oh I think he will."  And with that he left closing the door behind him.
+Babbo laughed.  "Oh I think he will."  And with that he left closing the door behind him.
 
 Zane kissed me hard.  "I should go.  Let you deal with your father and get ready for work. "  I licked my lips then moved to my neck and bit and sucked on his favorite spot.  I pulled him against me and groaned.
 

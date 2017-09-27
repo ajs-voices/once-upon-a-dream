@@ -6,7 +6,7 @@ The best part of this job was watching all the idiots.  But it was still getting
 
 Even an hour in the dance floor was still empty.  I'd refilled champange classes more than wine or custom drinks.  I had mostly a full bar, and plenty of stock to fill in the gaps if we got low on most thing.  There was no beer, which was annoying if you asked me.  But these were the rich and powerful.
 
-I saw the major of the good city of New York shmoozing with police chief.  Dad had escorted Angelina in about 30 minutes ago.  Baboo had stopped in then too to see how things were going before heading back into the kitchen to yell at the staff.  I was so glad I was out here.  All I had to do was entertain the guests when they came to me.  But with the amount of wait staff walking the floor there was little need to come to me until the champagne ran dry and everyone wanted their own brand of drink or wine.
+I saw the major of the good city of New York shmoozing with police chief.  Dad had escorted Angelina in about 30 minutes ago.  Babbo had stopped in then too to see how things were going before heading back into the kitchen to yell at the staff.  I was so glad I was out here.  All I had to do was entertain the guests when they came to me.  But with the amount of wait staff walking the floor there was little need to come to me until the champagne ran dry and everyone wanted their own brand of drink or wine.
 
 I didn't mind.  I liked people watching.  Zane's father showed up a few minutes after Dad, but Mr. Hudson had been here when I got here and he was already holding a flute glass.
 

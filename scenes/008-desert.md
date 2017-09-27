@@ -22,9 +22,9 @@ I smiled.  "I can't tell you that."
 
 "The blond one has a ring on his finger."  Nadia laughed.  "The other one isn't your normal type."
 
-I smiled.  "You don't know my type, Nad.  Never did."  I picked up the tray and hefted it over my shoulder with the coffee and the cake and walked out of the kitchen wearing the white of the chef and my apon still on.  I really hadn't thought about what Baboo would do.  I'd have to pay attention next time.
+I smiled.  "You don't know my type, Nad.  Never did."  I picked up the tray and hefted it over my shoulder with the coffee and the cake and walked out of the kitchen wearing the white of the chef and my apon still on.  I really hadn't thought about what Babbo would do.  I'd have to pay attention next time.
 
-I got a few looks walking out of the kitchen dressed like I was.  I doubted Baboo actually brought the food out himself.  I set the tray on the fold out table a busboy laid out for me.  And set a plate in each of the men and then a cup before I actually looked up at them.  "I hope you enjoy it."
+I got a few looks walking out of the kitchen dressed like I was.  I doubted Babbo actually brought the food out himself.  I set the tray on the fold out table a busboy laid out for me.  And set a plate in each of the men and then a cup before I actually looked up at them.  "I hope you enjoy it."
 
 "You bake it yourself?"  The married one asked.
 

@@ -12,7 +12,7 @@ Inside the lobby I found a chair and waited in it.  There was a trash magazine s
 
 I asked, "You ready?"
 
-Angel nodded.  "Yeah, sorry it took so long, Baboo was up and interogating me."  Angel had on a big puffy coat now and his wool hat was pulled down over his ears.  His hands were stuffed in his pockets and I tried not to let the disappointment show.
+Angel nodded.  "Yeah, sorry it took so long, Babbo was up and interogating me."  Angel had on a big puffy coat now and his wool hat was pulled down over his ears.  His hands were stuffed in his pockets and I tried not to let the disappointment show.
 
 We walked out into the cold and I asked, "What was he interrogating you about?"
 

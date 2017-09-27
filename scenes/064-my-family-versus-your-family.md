@@ -40,7 +40,7 @@ Zane was already at the door with his father heading towards the kitchen.  He wa
 
 "Yes, sir.  It's a surprise."  I said and hugged both my fathers.  I added.  "We have other guests this afternoon too."
 
-Baboo looked at me with a great big smile and headed for the kitchen with Zane.  I waved a hand for my father to go first and he looked at me with the 'you are in trouble' look.  He didn't know the half of it.  He stepped through the door and turned on his heel holding a finger up to scold me.  "¿Qué crees que estás haciendo?"
+Babbo looked at me with a great big smile and headed for the kitchen with Zane.  I waved a hand for my father to go first and he looked at me with the 'you are in trouble' look.  He didn't know the half of it.  He stepped through the door and turned on his heel holding a finger up to scold me.  "¿Qué crees que estás haciendo?"
 
 But it was Mr. Kennedy who spoke up.  "Leave the boy alone, Dorian.  There is absolutely no reason for you to hide in the presense of family."
 
@@ -48,7 +48,7 @@ I hid the happy feeling that coursed through my veins - family, Zane's family...
 
 I nodded, "Yes, sir."  And I knew we would.
 
-My father walked to the table and joined the others.  I watched as he greeted everyone with a bright formal smile.  He was not relaxed at all.  Baboo put a hand on his shoulder and I could see the minute jerk to displace his hand before he relaxed into his touch and I relaxed.  Maybe lunch would go well after all.
+My father walked to the table and joined the others.  I watched as he greeted everyone with a bright formal smile.  He was not relaxed at all.  Babbo put a hand on his shoulder and I could see the minute jerk to displace his hand before he relaxed into his touch and I relaxed.  Maybe lunch would go well after all.
 
 Zane came into the kitchen, "What's first, and where can I help?"
 
@@ -58,7 +58,7 @@ Zane passed by me and kissed me softly.  He muttered as we parted, "This will be
 
 I nodded and went for the wine color and pulled out the bottle that went with the appetizers.  Normally one bottle would go well, but today not so much.  Each course had it's own wine selection. It was all part of the classes I was taking.  I knew how to pair wines before, but there was a lot more to it than I had realized.  And I learned a few new wines I like.  I was still a beer guy.
 
-Zane set the little italian sushi type rolls down in front of each one.  Baboo looked up at me as I pour his wine.  "You are sharing your creations with us?"
+Zane set the little italian sushi type rolls down in front of each one.  Babbo looked up at me as I pour his wine.  "You are sharing your creations with us?"
 
 I grinned.  "Mr. Kennedy seemed to enjoy them the last time he was here.  I figured you might to see some of the things I've been working on."
 

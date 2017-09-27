@@ -10,7 +10,7 @@ Mr. Hudson left shortly there after and the last of the partners was Mr. Kennedy
 
 It was an annoying job but it was definately good amount of quiet time.  I didn't have a problem cleaning up.
 
-But I was drained by the time we got out.  Baboo left shortly after Dad had I needed to kill a little more time so I was gonna walk home.  It was cold outside and I pulled my coat around my neck and my hat down over my ears.
+But I was drained by the time we got out.  Babbo left shortly after Dad had I needed to kill a little more time so I was gonna walk home.  It was cold outside and I pulled my coat around my neck and my hat down over my ears.
 
 Standing outside in the door way outside the hotel I saw blue eyes.  He smiled at me.  "That took you long enough, what did you do mop the floor?"
 

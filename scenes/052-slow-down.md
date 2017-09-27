@@ -8,7 +8,7 @@ So when I went to get another beer while Cal and Jake were off with the girls I 
 
 My heart was beating fast and I was nervous as hell, but Zane hadn't told me to fuck off so I was hopeful.  I missed him.  Just seeing his blue eyes made my evening.  Talking to him would be great.  But I knew he was going to help clean up so I offered my assistance to Drew, but it was Max who put me to work.
 
-I knew there were eyes on me as I cleaned in my dad's 20's era suit.  He'd worn it to a costume party and didn't want to return it.  My dad looked like a ganster in it.  A real one from the 20s.  As much as my father hated it I was pretty sure they'd played cops and robbers with it a time or two.  Jail was a fun time for Baboo.  Or at least it sounded like it that night when I snuck in late.  That's how so many of my nights went.  Kinky parents getting it on while I was out but forgetting I came home too.  I never said anything but I knew they humped like bunny rabbits.
+I knew there were eyes on me as I cleaned in my dad's 20's era suit.  He'd worn it to a costume party and didn't want to return it.  My dad looked like a ganster in it.  A real one from the 20s.  As much as my father hated it I was pretty sure they'd played cops and robbers with it a time or two.  Jail was a fun time for Babbo.  Or at least it sounded like it that night when I snuck in late.  That's how so many of my nights went.  Kinky parents getting it on while I was out but forgetting I came home too.  I never said anything but I knew they humped like bunny rabbits.
 
 I chuckled to myself as I thought I'd probably be the same at their age.  I jumped when Zane asked, "What's so funny?"
 

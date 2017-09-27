@@ -20,7 +20,7 @@ His hands gripped my back and he pulled me against his body tighter.  "You okay?
 
 "Yeah."  Was all he said.  I slide off and cleaned up without moving too far from him.  "You sure?"
 
-He rolled on to his side and looked at me with those big brown eyes of his.  "I'm good.  I'm better than good.  Don't worry."  He said as he moved closer and pressed a kiss to my lips.  It was tender but there as a level need in it.  "I'll tell you when I don't like something."  He whispered as he pulled away.  He laid his head on his elbow and we stared at each other for a while.  He sighed and rolled on to his back.  "I need to get ready for work and talk to Baboo about New Years.  I should go."
+He rolled on to his side and looked at me with those big brown eyes of his.  "I'm good.  I'm better than good.  Don't worry."  He said as he moved closer and pressed a kiss to my lips.  It was tender but there as a level need in it.  "I'll tell you when I don't like something."  He whispered as he pulled away.  He laid his head on his elbow and we stared at each other for a while.  He sighed and rolled on to his back.  "I need to get ready for work and talk to Babbo about New Years.  I should go."
 
 He sat up and looked back at me.  I nodded.  "All right.  Call me later?"
 

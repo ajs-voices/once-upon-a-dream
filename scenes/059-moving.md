@@ -78,7 +78,7 @@ I scooped ice-cream on top of my pancakes and got up to put it back in the freez
 
 I interrupted the silence between us with a question.  "Does your dad dance around the kitchen?"
 
-Angel chuckled.  "No.  Baboo since opera.  He'll belt out songs in Italian while he's working.  The kitchen staff all know the words to his favorite ones and will sing with him sometimes."
+Angel chuckled.  "No.  Babbo since opera.  He'll belt out songs in Italian while he's working.  The kitchen staff all know the words to his favorite ones and will sing with him sometimes."
 
 "Eccentricitiy runs in your family doesn't it?"
 

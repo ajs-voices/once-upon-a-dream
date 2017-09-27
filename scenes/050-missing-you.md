@@ -68,7 +68,7 @@ I smiled.  "I like staying busy.  Keeps my mind busy."
 
 Cal just nodded like he understood.  I doubt he did.  He said.  "I'll text you with details Friday."
 
-We parted ways and I went home.  I missed my parents.  I saw Baboo everyday but I hadn't been home to see Dad.  Baboo said he asked about me often.  But I couldn't go home to see him, and Dad was too busy to come to the restauarnt to see me.  Neither of my father's had stopped by yet.  I knew Dad knew where I was, he made sure my lease agreement was truly month by month and not a scam.  It was good having a lawyer in the family.
+We parted ways and I went home.  I missed my parents.  I saw Babbo everyday but I hadn't been home to see Dad.  Babbo said he asked about me often.  But I couldn't go home to see him, and Dad was too busy to come to the restauarnt to see me.  Neither of my father's had stopped by yet.  I knew Dad knew where I was, he made sure my lease agreement was truly month by month and not a scam.  It was good having a lawyer in the family.
 
 By the time Friday night rolled around I had dressed and redyed my hair a stunning blue that reminded me of Zane.  I hadn't realized it the time when I bought it.  But there it was.  I was thinking about him even when I wasn't.  I glanced at the full rest on my left wrist that said Breathe underneath and sighed.  I still missed him, but I didn't have time to see him, much less thing long about him.
 
@@ -90,7 +90,7 @@ _No.  Good luck getting your free shot._
 
 I went home and dressed accordingly.  I had to raid my dad's closet.  He was about the right size.  Dad was home.  "Angel?  What are you doing?"
 
-"I'm borrowing Baboo's double breasted gray pin strip and that 20's hat he likes to wear but you won't let him."
+"I'm borrowing Babbo's double breasted gray pin strip and that 20's hat he likes to wear but you won't let him."
 
 He looked at me and frowned, "Why?"
 

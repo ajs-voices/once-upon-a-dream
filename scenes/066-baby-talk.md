@@ -32,7 +32,7 @@ I laughed.  "My line is adoptive.  There are kids out there who need homes like 
 
 She smiled at me and those big bright blue eyes were sad.  "Don't sell yourself short honey.  Blood is worth it."
 
-"That's telling me that my family isn't.  That Baboo and Dad are lesser because they chose to adopt instead of bear children of their line." I turned back towards the mirror and finished doing what I was doing.
+"That's telling me that my family isn't.  That Babbo and Dad are lesser because they chose to adopt instead of bear children of their line." I turned back towards the mirror and finished doing what I was doing.
 
 "That's not what I meant darling.  I only meant...."
 
@@ -54,11 +54,11 @@ I smiled.  "I'm glad it worked out for you."
 
 I laughed.  "I shouldn't need to.  I don't plan on introducing anyone else to the family."
 
-Dad laughed.  "Baboo slipped out before you.  He wanted me to give you a big hug and a kiss but I think I'll just pat your back.  You've grown so much Angel."
+Dad laughed.  "Babbo slipped out before you.  He wanted me to give you a big hug and a kiss but I think I'll just pat your back.  You've grown so much Angel."
 
 "Thanks, Dad.  But I'll take the hug."
 
-My father relented and wrapped his arms around me.  It wasn't a hug like Baboo would give me, but it was a hug from my father. "Enjoy Vegas.  Bring me back something."
+My father relented and wrapped his arms around me.  It wasn't a hug like Babbo would give me, but it was a hug from my father. "Enjoy Vegas.  Bring me back something."
 
 I grinned.  "Alright."
 
@@ -80,7 +80,7 @@ I turned around in his embrace, "I want her happy for us, for you.  I want her t
 
 "She'll be fine no matter what.  Mother will get along just fine with grandchildren not of her blood or with none at all.  She'll survive."
 
-"At least she didn't bring it up at dinner."  I said.  "I don't think Baboo would have enjoyed that conversation."
+"At least she didn't bring it up at dinner."  I said.  "I don't think Babbo would have enjoyed that conversation."
 
 "I don't think anyone would have."  Zane said with a smile.  "You coming to Zion tonight?"
 

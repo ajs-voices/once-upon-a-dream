@@ -62,7 +62,7 @@ He traced the line up to the middle of my back to where there was a chef's hat a
 
 "When I got a new tattoo I let the artist choose the location and add in one peice of scenery - whatever they wanted to embellish the treasure map feel of it that they added.  It's a bit of a mess but it tells a story."
 
-Zane traced his way through my childhood and teenage years.  There weren't many events I wanted to remember.  There was a little stylized ballroom dancing couple, a fist representing the martial arts my parents made me learn so when I did get bullied I could stand up for my self, that one represented the first time I had to punch a kid in the face.  I told Zane, "I started it.  He called Baboo a fag and I took offense to it.  It's one thing to call me names but you don't call the most loving man in the world names."
+Zane traced his way through my childhood and teenage years.  There weren't many events I wanted to remember.  There was a little stylized ballroom dancing couple, a fist representing the martial arts my parents made me learn so when I did get bullied I could stand up for my self, that one represented the first time I had to punch a kid in the face.  I told Zane, "I started it.  He called Babbo a fag and I took offense to it.  It's one thing to call me names but you don't call the most loving man in the world names."
 
 There were a few others from my childhood but Zane moved along to all the major cities of my European tour before college.  "That's Big Ben, I got in London.  All the rest are from that trip.  Each one I got in those cities.  Paris, Madrid, Barcelona, Rome, Vienna, Prague, Berlin, and Amsterdamn and circled back to London.  When I graduate from school I'll get another one brancing off London."
 

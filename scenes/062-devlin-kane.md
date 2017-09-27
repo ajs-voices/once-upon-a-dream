@@ -12,7 +12,7 @@ Of that I knew, he'd come in unannouced before - thankfully nothing riske was ha
 
 It was just the three of us for lunch while Drew was taking care of his family.  Max said he'd take them the left overs for which we were grateful, saved us the trip.
 
-The end of my last class was drawing near.  The next six weeks would be an externship.  I could have easily picked up the hours at Fiore, but I'd worked Fiore my whole life.  I knew everything but the business side of things.  That's what Hector was for.  Cino was Baboo's provisioner and he was in charge of the kitchen and very little else.  Hector did everything else.  It sounded very much like Zane, Drew and Max.  The whole business plan was left for now, mostly because Zane and I hadn't realy had time to sit down and talk about it.  But today I had time, and I had a question or two to ask Zane that had little to do with the business plan, but I was home early and I hoped he'd still be in.
+The end of my last class was drawing near.  The next six weeks would be an externship.  I could have easily picked up the hours at Fiore, but I'd worked Fiore my whole life.  I knew everything but the business side of things.  That's what Hector was for.  Cino was Babbo's provisioner and he was in charge of the kitchen and very little else.  Hector did everything else.  It sounded very much like Zane, Drew and Max.  The whole business plan was left for now, mostly because Zane and I hadn't realy had time to sit down and talk about it.  But today I had time, and I had a question or two to ask Zane that had little to do with the business plan, but I was home early and I hoped he'd still be in.
 
 When I opened the front door the lights were all on and it looked promising.  I called out, "Zane, you home?"
 
@@ -86,7 +86,7 @@ I smiled at him.  "I needed to talk to you."
 
 Zane nodded.  "Yeah neither you or your dad want you to work Fiore."
 
-I nodded.  "Baboo's been in touch with a friend, said he'd take me.  It's a high pressure place, lots of new experiences."
+I nodded.  "Babbo's been in touch with a friend, said he'd take me.  It's a high pressure place, lots of new experiences."
 
 "Sounds great."  Zane smiled.
 

@@ -78,11 +78,11 @@ He grinned at me, "I guess I'd have to actually date to find a good woman."
 
 "Your family trying to find you a good one?" I asked out of curiousity.
 
-He shook his head.  "No.  Dad would prefer I settled down with a woman.  But Baboo knows better than to push it."
+He shook his head.  "No.  Dad would prefer I settled down with a woman.  But Babbo knows better than to push it."
 
 "Is that how you distinquish between fathers?  It might get confusing."
 
-"It really is all relative.  Dad is the lawyer, and Baboo is the chef.  Baboo says your father when referring to Dad and Dad says your dad when talking about Baboo.  It's confusing to normal people.  But half the time I'll just speak in their native tongue so they know who I'm talking to."
+"It really is all relative.  Dad is the lawyer, and Babbo is the chef.  Babbo says your father when referring to Dad and Dad says your dad when talking about Babbo.  It's confusing to normal people.  But half the time I'll just speak in their native tongue so they know who I'm talking to."
 
 "Their native tongue?"  What the fuck.
 

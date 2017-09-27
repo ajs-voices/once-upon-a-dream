@@ -70,13 +70,13 @@ I grinned at him.  "Only for you lover."
 
 A shiver went over Zane and he smiled but said nothing as he turned to take the collection of clothing from the floor into his bedroom.  I got to watch him walk away naked and revel in the way his body moved.  I had to push myself towards the kitchen instead of follow Zane back.
 
-I glanced at the time on my phone and was shocked it said 6am.  We hadn't even gone to bed yet.  I had just pulled up a playlist when my phone rang.  It could only be one of two people and one of them I didn't exactly want to talk to right now.  When I looked at the caller I sighed, it had to be Dad.  Couldn't have been Baboo checking on me, it had to be Dad.
+I glanced at the time on my phone and was shocked it said 6am.  We hadn't even gone to bed yet.  I had just pulled up a playlist when my phone rang.  It could only be one of two people and one of them I didn't exactly want to talk to right now.  When I looked at the caller I sighed, it had to be Dad.  Couldn't have been Babbo checking on me, it had to be Dad.
 
 I answered the phone quickly but had it on speaker.  My hands were already covered in bacon fat as I separated the strips.  "Happy New Year, Dad."  I said covering my aggravation at his checking up.
 
 "You didn't come home last night."
 
-"I told Baboo I wasn't.  He didn't tell you."  I replied.
+"I told Babbo I wasn't.  He didn't tell you."  I replied.
 
 I don't think I hid my aggravation well that time.  "He did.  But you aren't here now which means you spent the night with **him**."
 
